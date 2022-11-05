@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-05 | [Castello di Tigh Mor Trossachs nei pressi del Lago Loch Achray, Scozia (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_IT-IT5458052217_UHD.jpg) 
+
 2022-11-01 | [Scheletri (calacas) travestiti per le celebrazioni del Día de los Muertos in Messico (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_IT-IT0389753487_UHD.jpg) 
 
 2022-10-28 | [Bridge of Sighs in Venice, Italy (© Doug Pearson/Alamy)](https://cn.bing.com/th?id=OHR.BridgeofSighs_EN-US5335369208_UHD.jpg) 
