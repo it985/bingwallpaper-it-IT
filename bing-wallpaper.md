@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-06 | [Maratoneti sul ponte Verrazano-Narrows, New York City, Stati Uniti (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_IT-IT7207610885_UHD.jpg) 
+
 2022-11-05 | [Castello di Tigh Mor Trossachs nei pressi del Lago Loch Achray, Scozia (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_IT-IT5458052217_UHD.jpg) 
 
 2022-11-01 | [Scheletri (calacas) travestiti per le celebrazioni del Día de los Muertos in Messico (© Amelia Fuentes Marin/Getty Images)](https://global.bing.com/th?id=OHR.Calacas_IT-IT0389753487_UHD.jpg) 
