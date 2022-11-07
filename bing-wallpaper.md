@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-07 | [Divinità raffigurate sulla tomba di Tutankhamon al Museo Egizio del Cairo, Egitto (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_IT-IT7902341628_UHD.jpg) 
+
 2022-11-06 | [Maratoneti sul ponte Verrazano-Narrows, New York City, Stati Uniti (© David Madison/Getty Images)](https://global.bing.com/th?id=OHR.MarathonSunday_IT-IT7207610885_UHD.jpg) 
 
 2022-11-05 | [Castello di Tigh Mor Trossachs nei pressi del Lago Loch Achray, Scozia (© Fortunato Gatto/eStock Photo)](https://global.bing.com/th?id=OHR.Trossachs_IT-IT5458052217_UHD.jpg) 
