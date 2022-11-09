@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-09 | [Riccio comune nel Sussex, in Inghilterra (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.HedgehogNest_IT-IT8372509232_UHD.jpg) 
+
 2022-11-08 | [Lanterne in volo durante il festival Yi Peng a Chiang Mai, Thailandia (© Suttipong Sutiratanachai/Getty Images)](https://global.bing.com/th?id=OHR.YiPeng_IT-IT8125779837_UHD.jpg) 
 
 2022-11-07 | [Divinità raffigurate sulla tomba di Tutankhamon al Museo Egizio del Cairo, Egitto (© Stefan Lippmann/Universal Images Group via Getty Images)](https://global.bing.com/th?id=OHR.Deities_IT-IT7902341628_UHD.jpg) 
