@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-12 | [Gruppo di aquile di mare testabianca nei pressi della città di Haines, Alaska, Stati Uniti (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_IT-IT9514161235_UHD.jpg) 
+
 2022-11-11 | [Castello di Torrechiara al tramonto in Val Parma (© Alberto Ghizzi Panizza/Getty Images)](https://global.bing.com/th?id=OHR.TorrechiaraCastle_IT-IT9240835591_UHD.jpg) 
 
 2022-11-10 | [Formazioni rocciose nel Parco Nazionale Badlands durante un temporale, South Dakota, USA (© DEEPOL by plainpicture)](https://global.bing.com/th?id=OHR.BadLightning_IT-IT8790128945_UHD.jpg) 
