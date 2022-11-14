@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-14 | [Rovine del castello medievale dei Cavalieri di San Giovanni sopra il villaggio di Chorio, isola di Chalki, Grecia (© Massimo Ripani/eStock Photo)](https://global.bing.com/th?id=OHR.SanGiovanni_IT-IT1906486251_UHD.jpg) 
+
 2022-11-13 | [Veduta aerea del fiume Isar, nei pressi del comune di Lenggries, in Germania (© Martin Siepmann/Offset/Shutterstock)](https://global.bing.com/th?id=OHR.IsarwinkelSylvenstein_IT-IT1521986963_UHD.jpg) 
 
 2022-11-12 | [Gruppo di aquile di mare testabianca nei pressi della città di Haines, Alaska, Stati Uniti (© Marion Vollborn/Minden Pictures)](https://global.bing.com/th?id=OHR.HainesEagle_IT-IT9514161235_UHD.jpg) 
