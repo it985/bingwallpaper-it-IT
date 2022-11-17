@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-17 | [Ponte sul fiume McKenzie Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_IT-IT2780928427_UHD.jpg) 
+
 2022-11-16 | [Abitazioni rupestri nel Parco Nazionale di Mesa Verde in Colorado, USA (© Brad McGinley Photography/Getty Images)](https://global.bing.com/th?id=OHR.Unesco50_IT-IT2534743501_UHD.jpg) 
 
 2022-11-15 | [Lontre canadesi che nuotano nel Parco Nazionale di Acadia, Maine, Stati Uniti (© George Sanker/Minden Pictures)](https://global.bing.com/th?id=OHR.LontraCanadensis_IT-IT2216857384_UHD.jpg) 
