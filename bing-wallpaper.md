@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-19 | [Virgin River nel Parco Nazionale di Zion, Utah, USA (© Jonathan Ross/Getty)](https://global.bing.com/th?id=OHR.ZNPVR_IT-IT5034248506_UHD.jpg) 
+
 2022-11-18 | [Le porte del Palazzo Reale (Dar El Makhzen) a Fez, in Marocco (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_IT-IT4726604829_UHD.jpg) 
 
 2022-11-17 | [Ponte sul fiume McKenzie Trail, Willamette National Forest, Oregon, USA (© Don Paulson/Danita Delimont)](https://global.bing.com/th?id=OHR.McKenzieRiverTrail_IT-IT2780928427_UHD.jpg) 
