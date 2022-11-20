@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-20 | [Opera d’arte effimera intitolata 'World in Progress II' dell'artista Saype presso la sede delle Nazioni Unite a New York City, Stati Uniti (© Valentin Flauraud/Shutterstock)](https://global.bing.com/th?id=OHR.LandartPainting_IT-IT5351009585_UHD.jpg) 
+
 2022-11-19 | [Virgin River nel Parco Nazionale di Zion, Utah, USA (© Jonathan Ross/Getty)](https://global.bing.com/th?id=OHR.ZNPVR_IT-IT5034248506_UHD.jpg) 
 
 2022-11-18 | [Le porte del Palazzo Reale (Dar El Makhzen) a Fez, in Marocco (© Adam Smigielski/Getty Images)](https://global.bing.com/th?id=OHR.IslamicArt_IT-IT4726604829_UHD.jpg) 
