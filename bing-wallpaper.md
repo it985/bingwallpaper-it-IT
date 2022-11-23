@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-23 | [Girasole (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_IT-IT6031312590_UHD.jpg) 
+
 2022-11-22 | [Volpe rossa nella Riserva Naturale Amsterdamse Waterleidingduinen nei Paesi Bassi (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_IT-IT5819363203_UHD.jpg) 
 
 2022-11-21 | [Stadio Ahmad Bin Ali a Doha, Qatar (© Qatar 2022/Supreme Committee via Getty Images)](https://global.bing.com/th?id=OHR.FIFA2022_IT-IT5594380664_UHD.jpg) 
