@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-24 | [Isola Bella, nell’arcipelago delle Isole Borromee, Lago Maggiore, Piemonte (© Massimo Ripani/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.BorromeanIslands_IT-IT6457370638_UHD.jpg) 
+
 2022-11-23 | [Girasole (© Dileep Chandran/Alamy)](https://global.bing.com/th?id=OHR.HelianthusAnnuus_IT-IT6031312590_UHD.jpg) 
 
 2022-11-22 | [Volpe rossa nella Riserva Naturale Amsterdamse Waterleidingduinen nei Paesi Bassi (© Edwin Giesbers/Minden Pictures)](https://global.bing.com/th?id=OHR.Waterleidingduinen_IT-IT5819363203_UHD.jpg) 
