@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-27 | [Foglia di cecropia adagiata su petali di artiglio di aragosta, Messico (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_IT-IT8145176801_UHD.jpg) 
+
 2022-11-26 | [Un ulivo davanti al Tempio della Concordia in Sicilia (© Alfio Finocchiaro/Shutterstock)](https://global.bing.com/th?id=OHR.OliveTreeDay_IT-IT7589541081_UHD.jpg) 
 
 2022-11-25 | [Monte Kampenwand, Alpi Bavaresi, Germania (© Toni Anzenberger/plainpicture)](https://global.bing.com/th?id=OHR.AschauChiemgau_IT-IT6853143115_UHD.jpg) 
