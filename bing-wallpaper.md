@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-11-29 | [Aironi azzurri che costruiscono un nido nelle zone umide di Wakodahatchee, Delray Beach, Florida (© Imagebroker/Alamy)](https://global.bing.com/th?id=OHR.HeronGiving_IT-IT1873839262_UHD.jpg) 
+
 2022-11-28 | [Marte, il pianta rosso (© NASA/Alamy)](https://global.bing.com/th?id=OHR.RedPlanetDay_IT-IT1471017689_UHD.jpg) 
 
 2022-11-27 | [Foglia di cecropia adagiata su petali di artiglio di aragosta, Messico (© Gerry Ellis/Minden Pictures)](https://global.bing.com/th?id=OHR.Cecropia_IT-IT8145176801_UHD.jpg) 
