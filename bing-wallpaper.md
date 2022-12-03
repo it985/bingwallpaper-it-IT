@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-03 | [Lago Agnel e Lago Serrù, Parco Nazionale del Gran Paradiso, Italia (© agustavop/Getty Images)](https://global.bing.com/th?id=OHR.GranParadiso100th_IT-IT3890893654_UHD.jpg) 
+
 2022-12-02 | [Delta del fiume Tlikakila nel Parco Nazionale del Lago Clark, Alaska, Stati Uniti (© Dawn Wilson Photography/Getty Images)](https://global.bing.com/th?id=OHR.BraidedRiverDelta_IT-IT2768338729_UHD.jpg) 
 
 2022-11-29 | [Aironi azzurri che costruiscono un nido nelle zone umide di Wakodahatchee, Delray Beach, Florida (© Imagebroker/Alamy)](https://global.bing.com/th?id=OHR.HeronGiving_IT-IT1873839262_UHD.jpg) 
