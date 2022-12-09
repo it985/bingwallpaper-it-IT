@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-09 | [Bue muschiato madre e figlio nel Parco nazionale Dovrefjell-Sunndalsfjella, Norvegia (© Robert Haasmann/Minden Pictures)](https://global.bing.com/th?id=OHR.NorwayMuskox_IT-IT9113986240_UHD.jpg) 
+
 2022-12-08 | [Cattedrale di Santa Maria del Fiore e centro storico di Firenze visti dall’alto (© Alexander Baert/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.FlorenceAerial_IT-IT8986104712_UHD.jpg) 
 
 2022-12-04 | [Elefanti nei pressi del Kilimangiaro, Parco nazionale di Amboseli, Kenya (© Diana Robinson Photography/Getty Images)](https://global.bing.com/th?id=OHR.KilimanjaroElephants_IT-IT8791759979_UHD.jpg) 
