@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-12 | [Euphorbia pulcherrima nota come Poinsettia o Stella di Natale (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_IT-IT9265095984_UHD.jpg) 
+
 2022-12-11 | [Vista dalla vetta del monte Roßstein, Baviera, Germania (© Christian Bäck/eStock Photo)](https://global.bing.com/th?id=OHR.BuchsteinRossstein_IT-IT9149911592_UHD.jpg) 
 
 2022-12-10 | [Salar de Uyuni in Bolivia (© Theo Allofs/Minden Pictures)](https://global.bing.com/th?id=OHR.SaltDesert_IT-IT9073772444_UHD.jpg) 
