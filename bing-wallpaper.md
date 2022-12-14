@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-14 | [Cascate Tangle Creek Parco Nazionale di Jasper, Alberta, Canada (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.TangleCreekFalls_IT-IT9219346526_UHD.jpg) 
+
 2022-12-13 | [Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_IT-IT9185258654_UHD.jpg) 
 
 2022-12-12 | [Euphorbia pulcherrima nota come Poinsettia o Stella di Natale (© Elizabeth Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.PoinsettiaDay_IT-IT9265095984_UHD.jpg) 
