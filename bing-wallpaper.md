@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-15 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_IT-IT8730463198_UHD.jpg) 
+
 2022-12-14 | [Cascate Tangle Creek Parco Nazionale di Jasper, Alberta, Canada (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.TangleCreekFalls_IT-IT9219346526_UHD.jpg) 
 
 2022-12-13 | [Hallstatt, Austria (© Jon Arnold Images Ltd/Alamy)](https://global.bing.com/th?id=OHR.InstagramHallstatt_IT-IT9185258654_UHD.jpg) 
