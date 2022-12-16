@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-16 | [Roe deer nestled in the snowy forest, Sesto, Pusteria valley, dolomites, Trentino Alto Adige (© Federica Cattaruzzi/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.RoeTrentino_IT-IT7379688058_UHD.jpg) 
+
 2022-12-15 | [Borovets, Bulgaria (© Grigor Ivanov/Cavan Images)](https://global.bing.com/th?id=OHR.Borovets_IT-IT8730463198_UHD.jpg) 
 
 2022-12-14 | [Cascate Tangle Creek Parco Nazionale di Jasper, Alberta, Canada (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.TangleCreekFalls_IT-IT9219346526_UHD.jpg) 
