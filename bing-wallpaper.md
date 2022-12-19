@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-19 | [Un cardinale rosso appollaiato su un cespuglio di bacche invernali nella contea di Marion, Illinois, USA (© Richard and Susan Day/Danita Delimont)](https://global.bing.com/th?id=OHR.WinterberryBush_IT-IT0716746142_UHD.jpg) 
+
 2022-12-18 | [South Beach a Miami, Florida, USA (© Claudia Uripos/eStock Photo)](https://global.bing.com/th?id=OHR.SouthBeach_IT-IT0596404454_UHD.jpg) 
 
 2022-12-17 | [Capre delle nevi nel Glacier National Park, Montana, USA (© Sumio Harada/Minden Pictures)](https://global.bing.com/th?id=OHR.GlacierGoats_IT-IT2530415589_UHD.jpg) 
