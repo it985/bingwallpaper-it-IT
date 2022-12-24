@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-24 | [Porto di Amalga, Alaska, Stati Uniti (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_IT-IT0809820895_UHD.jpg) 
+
 2022-12-23 | [Pinguini Gentoo in Antartide (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.GentooGrievances_IT-IT0883289561_UHD.jpg) 
 
 2022-12-22 | [Albero di Natale nelle Galeries Lafayette a Parigi, Francia (© Geoffroy Van der Hasselt/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TreeGaleriesLafayette_IT-IT0929395790_UHD.jpg) 
