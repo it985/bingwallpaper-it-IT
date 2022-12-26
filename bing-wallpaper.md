@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-26 | [Beverley Westwood, Yorkshire, Inghilterra (© Les Gibbon/Alamy)](https://global.bing.com/th?id=OHR.BeverleyWestwood_IT-IT0679247623_UHD.jpg) 
+
 2022-12-25 | [Vacanze a Strasburgo, Francia (© Kavalenkava Volha/Alamy)](https://global.bing.com/th?id=OHR.ChristmasSouvenir_IT-IT0848440628_UHD.jpg) 
 
 2022-12-24 | [Porto di Amalga, Alaska, Stati Uniti (© Mark Kelley/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmalgaTree_IT-IT0809820895_UHD.jpg) 
