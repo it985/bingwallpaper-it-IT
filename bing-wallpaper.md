@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-12-31 | [Fuochi d'artificio di Capodanno, Sydney Harbour Bridge, Australia (© Wendell Teodoro/Getty Images)](https://global.bing.com/th?id=OHR.SydneyNYE_IT-IT6506933532_UHD.jpg) 
+
 2022-12-30 | [Formazioni rocciose nel Deserto Bianco, Egitto (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.ChalkRock_IT-IT6238441928_UHD.jpg) 
 
 2022-12-29 | [Due esemplari di plebejus argus (© Misja Smits/Minden Pictures)](https://global.bing.com/th?id=OHR.ButterflyEffect_IT-IT0343358524_UHD.jpg) 
