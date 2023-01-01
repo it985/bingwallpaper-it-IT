@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-01 | [Orso polare alle Svalbard, Norvegia (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_IT-IT5778701679_UHD.jpg) 
+
 2022-12-31 | [Fuochi d'artificio di Capodanno, Sydney Harbour Bridge, Australia (© Wendell Teodoro/Getty Images)](https://global.bing.com/th?id=OHR.SydneyNYE_IT-IT6506933532_UHD.jpg) 
 
 2022-12-30 | [Formazioni rocciose nel Deserto Bianco, Egitto (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.ChalkRock_IT-IT6238441928_UHD.jpg) 
