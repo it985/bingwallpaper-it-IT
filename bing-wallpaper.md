@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-03 | [Gru canadesi, Bosque del Apache National Wildlife Refuge, Nuovo Messico (© Jay Goodrich/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SandhillSleeping_IT-IT7269050580_UHD.jpg) 
+
 2023-01-02 | [Castello di Hohenzollern, Germania (© Sahara Prince/Shutterstock)](https://global.bing.com/th?id=OHR.HohenzollernBurg_IT-IT6459453242_UHD.jpg) 
 
 2023-01-01 | [Orso polare alle Svalbard, Norvegia (© Dennis Stogsdill/Getty Images)](https://global.bing.com/th?id=OHR.NorwayNYD_IT-IT5778701679_UHD.jpg) 
