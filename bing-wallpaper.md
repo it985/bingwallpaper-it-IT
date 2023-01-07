@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-07 | [Filato di lana e mohair (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_IT-IT1776662253_UHD.jpg) 
+
 2023-01-06 | [Piazza Navona with the Moor Fountain and Basilica at sunset, Rome, Italy (© Anton Aleksenko/agefotostock/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RomePiazzaNavona_IT-IT7494581195_UHD.jpg) 
 
 2023-01-05 | [Festival internazionale delle sculture di ghiaccio e neve di Harbin, Cina (© STR/AFP via Getty Images)](https://global.bing.com/th?id=OHR.HIISSF_IT-IT8410923580_UHD.jpg) 
