@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-08 | [Breckenridge, Colorado (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_IT-IT2584997816_UHD.jpg) 
+
 2023-01-07 | [Filato di lana e mohair (© Jurate Buiviene/Alamy)](https://global.bing.com/th?id=OHR.Mohair_IT-IT1776662253_UHD.jpg) 
 
 2023-01-06 | [Piazza Navona with the Moor Fountain and Basilica at sunset, Rome, Italy (© Anton Aleksenko/agefotostock/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.RomePiazzaNavona_IT-IT7494581195_UHD.jpg) 
