@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-10 | [Dune di ghiaccio sul Lago dei Ciudi in Estonia (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.HummockIce_IT-IT5527836385_UHD.jpg) 
+
 2023-01-09 | [Bufali nel Parco nazionale di Wind Cave, South Dakota (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_IT-IT3745735092_UHD.jpg) 
 
 2023-01-08 | [Breckenridge, Colorado (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.Breckenridge_IT-IT2584997816_UHD.jpg) 
