@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-11 | [“Umschreibung” dell’artista Olafur Eliasson a Schwantalerhöhe, Monaco di Baviera (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_IT-IT6840512006_UHD.jpg) 
+
 2023-01-10 | [Dune di ghiaccio sul Lago dei Ciudi in Estonia (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.HummockIce_IT-IT5527836385_UHD.jpg) 
 
 2023-01-09 | [Bufali nel Parco nazionale di Wind Cave, South Dakota (© Charlie Summers/Minden Pictures)](https://global.bing.com/th?id=OHR.BisonWindCave_IT-IT3745735092_UHD.jpg) 
