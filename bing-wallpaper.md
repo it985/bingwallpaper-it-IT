@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-13 | [Kelp Gigante nel Santuario Marino Nazionale di Channel Island, California, USA (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_IT-IT2515492837_UHD.jpg) 
+
 2023-01-12 | [Rumelihisarı sullo stretto del Bosforo a Istanbul, Turchia (© Drone in Wonderland/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.RumeliHisari_IT-IT6683090388_UHD.jpg) 
 
 2023-01-11 | [“Umschreibung” dell’artista Olafur Eliasson a Schwantalerhöhe, Monaco di Baviera (© Manfred Bail/Alamy)](https://global.bing.com/th?id=OHR.Umschreibung_IT-IT6840512006_UHD.jpg) 
