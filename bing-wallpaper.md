@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-15 | [Fiume Aura a Turku, Finlandia (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_IT-IT3062234350_UHD.jpg) 
+
 2023-01-14 | [Asino domestico mentre si nutre di ramoscelli di ciliegio (© Juniors Bildarchiv GmbH/Alamy)](https://global.bing.com/th?id=OHR.DonkeyFeast_IT-IT2447244740_UHD.jpg) 
 
 2023-01-13 | [Kelp Gigante nel Santuario Marino Nazionale di Channel Island, California, USA (© Brandon Cole Images/Shutterstock)](https://global.bing.com/th?id=OHR.Pneumatocysts_IT-IT2515492837_UHD.jpg) 
