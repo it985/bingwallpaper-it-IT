@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-16 | [Il Mount Michener e il lago ghiacciato Abraham in Alberta, Canada (© Tom Mackie/plainpicture)](https://global.bing.com/th?id=OHR.FrozenBubblesAlberta_IT-IT1840434628_UHD.jpg) 
+
 2023-01-15 | [Fiume Aura a Turku, Finlandia (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_IT-IT3062234350_UHD.jpg) 
 
 2023-01-14 | [Asino domestico mentre si nutre di ramoscelli di ciliegio (© Juniors Bildarchiv GmbH/Alamy)](https://global.bing.com/th?id=OHR.DonkeyFeast_IT-IT2447244740_UHD.jpg) 
