@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-17 | [Riserva Naturale di Muniellos nelle Asturie, Spagna (© Andres M. Dominguez/Minden Pictures)](https://global.bing.com/th?id=OHR.SessileOaks_IT-IT5903708710_UHD.jpg) 
+
 2023-01-16 | [Il Mount Michener e il lago ghiacciato Abraham in Alberta, Canada (© Tom Mackie/plainpicture)](https://global.bing.com/th?id=OHR.FrozenBubblesAlberta_IT-IT1840434628_UHD.jpg) 
 
 2023-01-15 | [Fiume Aura a Turku, Finlandia (© Jarmo Piironen/Alamy)](https://global.bing.com/th?id=OHR.Turku_IT-IT3062234350_UHD.jpg) 
