@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-23 | [Statue Moai sull'Isola di Pasqua, Cile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_IT-IT9686868369_UHD.jpg) 
+
 2023-01-22 | [Lepre di montagna nel Derbyshire, Inghilterra  (© Ben Hall/Minden Pictures)](https://global.bing.com/th?id=OHR.YearRabbit_IT-IT9279263246_UHD.jpg) 
 
 2023-01-21 | [Mamma canguro con il suo piccolo (© Belle Ciezak/Shutterstock)](https://global.bing.com/th?id=OHR.HuggingKanga_IT-IT8726227642_UHD.jpg) 
