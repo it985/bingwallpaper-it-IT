@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-25 | [Statua di Robert Burns in The Birks of Aberfeldy, Perth and Kinross, Scozia (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_IT-IT2525292243_UHD.jpg) 
+
 2023-01-24 | [Colle Santa Lucia nelle Dolomiti, Italia (© mauritius images GmbH/Alamy)](https://global.bing.com/th?id=OHR.ColleSantaLucia_IT-IT2210632651_UHD.jpg) 
 
 2023-01-23 | [Statue Moai sull'Isola di Pasqua, Cile (© Karine Aigner/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SunriseMoai_IT-IT9686868369_UHD.jpg) 
