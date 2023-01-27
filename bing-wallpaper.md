@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-27 | [Mangrovia rossa nel Parco Nazionale di Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_IT-IT1954626152_UHD.jpg) 
+
 2023-01-26 | [Porta del Paradiso nel parco nazionale della montagna di Tianmen, Cina (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_IT-IT3051925170_UHD.jpg) 
 
 2023-01-25 | [Statua di Robert Burns in The Birks of Aberfeldy, Perth and Kinross, Scozia (© Dennis Barnes/Getty Images)](https://global.bing.com/th?id=OHR.BirksofAberfeldy_IT-IT2525292243_UHD.jpg) 
