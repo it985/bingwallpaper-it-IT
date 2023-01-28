@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-28 | [Le acque verde-blu intorno alle Bahamas viste dalla Stazione Spaziale Internazionale (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_IT-IT2183576363_UHD.jpg) 
+
 2023-01-27 | [Mangrovia rossa nel Parco Nazionale di Guanahacabibes, Cuba (© Claudio Contreras/Minden Pictures)](https://global.bing.com/th?id=OHR.RedMangrove_IT-IT1954626152_UHD.jpg) 
 
 2023-01-26 | [Porta del Paradiso nel parco nazionale della montagna di Tianmen, Cina (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.HighArchChina_IT-IT3051925170_UHD.jpg) 
