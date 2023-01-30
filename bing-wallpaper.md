@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-01-30 | [Campionato europeo di vela su ghiaccio e neve sul lago Balaton in Ungheria (© mauritius images GmbH/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.IceSailingBalaton_IT-IT2657386089_UHD.jpg) 
+
 2023-01-29 | [Merlo nell’Essex, Inghilterra (© Bill Coster/Alamy)](https://global.bing.com/th?id=OHR.BlackbirdDay_IT-IT2366493161_UHD.jpg) 
 
 2023-01-28 | [Le acque verde-blu intorno alle Bahamas viste dalla Stazione Spaziale Internazionale (© NASA)](https://global.bing.com/th?id=OHR.BlueBahamas_IT-IT2183576363_UHD.jpg) 
