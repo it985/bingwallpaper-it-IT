@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-02 | [Marmotte alpine nel Parco nazionale degli Alti Tauri, Austria (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_IT-IT3234034313_UHD.jpg) 
+
 2023-02-01 | [Il castello di Pierrefonds, nel dipartimento dell'Oise in Piccardia, Francia (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.SunriseCastle_IT-IT9001887835_UHD.jpg) 
 
 2023-01-31 | [Zebre di Burchell, Riserva naturale di Rietvlei, Sudafrica (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraTrio_IT-IT2903449182_UHD.jpg) 
