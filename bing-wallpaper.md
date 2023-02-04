@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-04 | [Torre di Feldberg nella Foresta Nera, Baden-Württemberg, Germania (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.FeldbergSchnee_IT-IT0457844388_UHD.jpg) 
+
 2023-02-03 | [Chateau Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_IT-IT3419937126_UHD.jpg) 
 
 2023-02-02 | [Marmotte alpine nel Parco nazionale degli Alti Tauri, Austria (© Michaela Walch/Alamy)](https://global.bing.com/th?id=OHR.GroundhogThree_IT-IT3234034313_UHD.jpg) 
