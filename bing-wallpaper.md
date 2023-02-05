@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-05 | [Farfalle monarca a Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)](https://global.bing.com/th?id=OHR.MonarchPismo_IT-IT4010853732_UHD.jpg) 
+
 2023-02-04 | [Torre di Feldberg nella Foresta Nera, Baden-Württemberg, Germania (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.FeldbergSchnee_IT-IT0457844388_UHD.jpg) 
 
 2023-02-03 | [Chateau Frontenac, Quebec City, Canada (© Romiana Lee/Shutterstock)](https://global.bing.com/th?id=OHR.QuebecFrontenac_IT-IT3419937126_UHD.jpg) 
