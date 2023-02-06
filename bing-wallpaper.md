@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-06 | [Parco Nazionale Fiordland nell'Isola del Sud, Nuova Zelanda (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_IT-IT4284025298_UHD.jpg) 
+
 2023-02-05 | [Farfalle monarca a Pismo Beach, California, USA (© Mimi Ditchie/Getty Images)](https://global.bing.com/th?id=OHR.MonarchPismo_IT-IT4010853732_UHD.jpg) 
 
 2023-02-04 | [Torre di Feldberg nella Foresta Nera, Baden-Württemberg, Germania (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.FeldbergSchnee_IT-IT0457844388_UHD.jpg) 
