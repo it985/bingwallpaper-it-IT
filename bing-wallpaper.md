@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-08 | [Area di sosta di Ureddplassen sulla Strada panoramica norvegese Helgelandskysten, Norvegia  (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_IT-IT4691799995_UHD.jpg) 
+
 2023-02-07 | [Il borgo di Labro, Provincia di Rieti, Italia (© Marco Ilari/Shutterstock)](https://global.bing.com/th?id=OHR.MedievalLabro_IT-IT4474015950_UHD.jpg) 
 
 2023-02-06 | [Parco Nazionale Fiordland nell'Isola del Sud, Nuova Zelanda (© WitR/Adobe Stock)](https://global.bing.com/th?id=OHR.WaitangiFjordlandNP_IT-IT4284025298_UHD.jpg) 
