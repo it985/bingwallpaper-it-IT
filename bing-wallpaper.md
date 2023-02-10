@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-10 | [Il castello di Cigognola immerso nella neve, Pavia (© Massimo Ripani/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.CigognolaCastle_IT-IT7500748083_UHD.jpg) 
+
 2023-02-09 | [Lower Antelope Canyon in Arizona, USA (© AZCat/Getty Images)](https://global.bing.com/th?id=OHR.LowerAntelopeAZ_IT-IT5977719347_UHD.jpg) 
 
 2023-02-08 | [Area di sosta di Ureddplassen sulla Strada panoramica norvegese Helgelandskysten, Norvegia  (© Eyesite/Alamy)](https://global.bing.com/th?id=OHR.NorwayRestArea_IT-IT4691799995_UHD.jpg) 
