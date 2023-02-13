@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-13 | [Belvedere di Achaches, Valle della Luna, Cile (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.MoonValley_IT-IT9056152413_UHD.jpg) 
+
 2023-02-12 | [Sula piediazzurri, Isole Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.BoobyDarwinDay_IT-IT8563922772_UHD.jpg) 
 
 2023-02-11 | [La Via Lattea vista da Zabriskie Point, Valle della morte, California (© Matt Anderson Photography/Getty Images)](https://global.bing.com/th?id=OHR.DarkSkiesDV_IT-IT8625054837_UHD.jpg) 
