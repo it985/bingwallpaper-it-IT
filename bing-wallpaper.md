@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-14 | [Igloo al festival della neve di Otaru, Hokkaido, Giappone (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_IT-IT9451975199_UHD.jpg) 
+
 2023-02-13 | [Belvedere di Achaches, Valle della Luna, Cile (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.MoonValley_IT-IT9056152413_UHD.jpg) 
 
 2023-02-12 | [Sula piediazzurri, Isole Galápagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.BoobyDarwinDay_IT-IT8563922772_UHD.jpg) 
