@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-16 | ["Cascate di fuoco" Horsetail, Parco Nazionale dello Yosemite, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_IT-IT9878608060_UHD.jpg) 
+
 2023-02-15 | [Madre e cucciolo di ippopotamo, Parco nazionale del Chobe, Botswana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_IT-IT9758060702_UHD.jpg) 
 
 2023-02-14 | [Igloo al festival della neve di Otaru, Hokkaido, Giappone (© T Photography/Shutterstock)](https://global.bing.com/th?id=OHR.OtaruIgloo_IT-IT9451975199_UHD.jpg) 
