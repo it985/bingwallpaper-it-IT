@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-17 | [Parco Nazionale del Gran Sasso, chiesa Madonna della Pietà, L'Aquila (© Maurizio Rellini/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.AbruzzoNationalPark_IT-IT9956945803_UHD.jpg) 
+
 2023-02-16 | ["Cascate di fuoco" Horsetail, Parco Nazionale dello Yosemite, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireFallYosemite_IT-IT9878608060_UHD.jpg) 
 
 2023-02-15 | [Madre e cucciolo di ippopotamo, Parco nazionale del Chobe, Botswana (© jacobeukman/Getty Images)](https://global.bing.com/th?id=OHR.HippoDayChobe_IT-IT9758060702_UHD.jpg) 
