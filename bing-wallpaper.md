@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-19 | [Megattere, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_IT-IT1129171844_UHD.jpg) 
+
 2023-02-18 | [Grotte di ghiaccio di Eben, Penisola Superiore, Michigan (© Dean Pennala/Shutterstock)](https://global.bing.com/th?id=OHR.EbenIceCave_IT-IT0558182026_UHD.jpg) 
 
 2023-02-17 | [Parco Nazionale del Gran Sasso, chiesa Madonna della Pietà, L'Aquila (© Maurizio Rellini/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.AbruzzoNationalPark_IT-IT9956945803_UHD.jpg) 
