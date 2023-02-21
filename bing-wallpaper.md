@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-21 | [Quartiere francese, New Orleans, Louisiana, USA (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_IT-IT1573841276_UHD.jpg) 
+
 2023-02-20 | [Canyon di Itaimbezinho, Brasile (© NidoHuebl/Getty Images)](https://global.bing.com/th?id=OHR.Itaimbezinho_IT-IT1948336726_UHD.jpg) 
 
 2023-02-19 | [Megattere, Maui, Hawaii, USA (© Flip Nicklin/Minden Pictures)](https://global.bing.com/th?id=OHR.MauiWhale_IT-IT1129171844_UHD.jpg) 
