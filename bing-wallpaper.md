@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-22 | [Campana della pace sulla cima del Fichtelberg, Sassonia, Germania (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_IT-IT2432299937_UHD.jpg) 
+
 2023-02-21 | [Quartiere francese, New Orleans, Louisiana, USA (© f11photo/Getty Images)](https://global.bing.com/th?id=OHR.MardiGrasNOLA_IT-IT1573841276_UHD.jpg) 
 
 2023-02-20 | [Canyon di Itaimbezinho, Brasile (© NidoHuebl/Getty Images)](https://global.bing.com/th?id=OHR.Itaimbezinho_IT-IT1948336726_UHD.jpg) 
