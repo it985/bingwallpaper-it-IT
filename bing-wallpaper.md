@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-24 | [Anatra mandarina, Richmond Park, Londra, Regno Unito (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_IT-IT1853497820_UHD.jpg) 
+
 2023-02-23 | [Parigi, Francia (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_IT-IT1967416007_UHD.jpg) 
 
 2023-02-22 | [Campana della pace sulla cima del Fichtelberg, Sassonia, Germania (© Jan Drahokoupil/Getty Images)](https://global.bing.com/th?id=OHR.FriedensglockeFichtelberg_IT-IT2432299937_UHD.jpg) 
