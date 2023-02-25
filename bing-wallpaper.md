@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-25 | [Tempio E di Selinunte, Parco archeologico, Trapani (© Antonino Bartuccio/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.TempleE_IT-IT9523677064_UHD.jpg) 
+
 2023-02-24 | [Anatra mandarina, Richmond Park, Londra, Regno Unito (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_IT-IT1853497820_UHD.jpg) 
 
 2023-02-23 | [Parigi, Francia (© somchaij/Shutterstock)](https://global.bing.com/th?id=OHR.ParisWinter_IT-IT1967416007_UHD.jpg) 
