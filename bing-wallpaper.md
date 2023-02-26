@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-26 | [Avventura sul ponte sospeso nell'Amazzonia peruviana, Riserva Naturale di Tambopata, Perù (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_IT-IT2359138558_UHD.jpg) 
+
 2023-02-25 | [Tempio E di Selinunte, Parco archeologico, Trapani (© Antonino Bartuccio/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.TempleE_IT-IT9523677064_UHD.jpg) 
 
 2023-02-24 | [Anatra mandarina, Richmond Park, Londra, Regno Unito (© Oscar Dewhurst/Minden Pictures)](https://global.bing.com/th?id=OHR.RichmondParkDuck_IT-IT1853497820_UHD.jpg) 
