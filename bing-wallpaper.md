@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-27 | [Orsi polari addormentati in Canada (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_IT-IT2519594160_UHD.jpg) 
+
 2023-02-26 | [Avventura sul ponte sospeso nell'Amazzonia peruviana, Riserva Naturale di Tambopata, Perù (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_IT-IT2359138558_UHD.jpg) 
 
 2023-02-25 | [Tempio E di Selinunte, Parco archeologico, Trapani (© Antonino Bartuccio/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.TempleE_IT-IT9523677064_UHD.jpg) 
