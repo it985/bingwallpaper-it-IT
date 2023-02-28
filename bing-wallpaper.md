@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-02-28 | [Atrani, Costiera Amalfitana (© Amazing Aerial/Shutterstock)](https://global.bing.com/th?id=OHR.AtraniAmalfi_IT-IT2694956413_UHD.jpg) 
+
 2023-02-27 | [Orsi polari addormentati in Canada (© David Pike/Minden Pictures)](https://global.bing.com/th?id=OHR.PolarBearFrost_IT-IT2519594160_UHD.jpg) 
 
 2023-02-26 | [Avventura sul ponte sospeso nell'Amazzonia peruviana, Riserva Naturale di Tambopata, Perù (© Pere Rubi/Getty Images)](https://global.bing.com/th?id=OHR.CanopyPeru_IT-IT2359138558_UHD.jpg) 
