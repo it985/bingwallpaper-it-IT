@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-04 | [Strada per il Monte Pico, Portogallo (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_IT-IT1449882802_UHD.jpg) 
+
 2023-03-03 | [Orche a Spildra, Norvegia (© Alex Mustard/Minden Pictures)](https://global.bing.com/th?id=OHR.OrcaNorway_IT-IT1752392287_UHD.jpg) 
 
 2023-03-02 | [Lago di Negratín, Granada, Spagna (© Andres Martinez Olmedo/Getty Images)](https://global.bing.com/th?id=OHR.NegratinSpain_IT-IT2219466753_UHD.jpg) 
