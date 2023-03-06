@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-06 | [Cavalli islandesi a passeggio in un campo, Islanda (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_IT-IT0936310690_UHD.jpg) 
+
 2023-03-05 | [Antico teatro di Epidauro, Grecia (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_IT-IT2036947217_UHD.jpg) 
 
 2023-03-04 | [Strada per il Monte Pico, Portogallo (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.PicoVolcano_IT-IT1449882802_UHD.jpg) 
