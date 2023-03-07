@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-07 | [Veduta aerea di campi di riso a gradini, Yuanyang, Cina (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_IT-IT0293846693_UHD.jpg) 
+
 2023-03-06 | [Cavalli islandesi a passeggio in un campo, Islanda (© Rodrigo Lourezini/Shutterstock)](https://global.bing.com/th?id=OHR.IcelandHorses_IT-IT0936310690_UHD.jpg) 
 
 2023-03-05 | [Antico teatro di Epidauro, Grecia (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.EpidaurusGreece_IT-IT2036947217_UHD.jpg) 
