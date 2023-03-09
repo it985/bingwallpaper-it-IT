@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-09 | [Tramonto a Matera, Basilicata, Italia (© Riccardo Spila/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.BasilicataMatera_IT-IT9374730410_UHD.jpg) 
+
 2023-03-08 | [La fontana di Cibeles e il municipio di Madrid illuminati per la Giornata internazionale della donna, Madrid (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_IT-IT7807876001_UHD.jpg) 
 
 2023-03-07 | [Veduta aerea di campi di riso a gradini, Yuanyang, Cina (© AlexGcs/Getty Images)](https://global.bing.com/th?id=OHR.YuanyangChina_IT-IT0293846693_UHD.jpg) 
