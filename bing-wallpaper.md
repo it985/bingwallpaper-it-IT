@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-10 | [Veduta aerea di Castel del Monte, Andria (© Fabio Dell/Shutterstock)](https://global.bing.com/th?id=OHR.shutterstock_1344992492_IT-IT1465751252_UHD.jpg) 
+
 2023-03-09 | [Tramonto a Matera, Basilicata, Italia (© Riccardo Spila/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.BasilicataMatera_IT-IT9374730410_UHD.jpg) 
 
 2023-03-08 | [La fontana di Cibeles e il municipio di Madrid illuminati per la Giornata internazionale della donna, Madrid (© dpa picture alliance/Alamy)](https://global.bing.com/th?id=OHR.IntlWomensDayChange_IT-IT7807876001_UHD.jpg) 
