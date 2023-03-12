@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-12 | [Teatro nazionale di Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_IT-IT7062207948_UHD.jpg) 
+
 2023-03-11 | [Palude di Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)](https://global.bing.com/th?id=OHR.LongWharf_IT-IT5995299794_UHD.jpg) 
 
 2023-03-10 | [Veduta aerea di Castel del Monte, Andria (© Fabio Dell/Shutterstock)](https://global.bing.com/th?id=OHR.shutterstock_1344992492_IT-IT1465751252_UHD.jpg) 
