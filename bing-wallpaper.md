@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-13 | [Quartieri Spagnoli, Napoli, Italia (© Cihan Bektas/Amazing Aerial)](https://global.bing.com/th?id=OHR.Cihan_Bektas_B03_03_IT-IT7231382966_UHD.jpg) 
+
 2023-03-12 | [Teatro nazionale di Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_IT-IT7062207948_UHD.jpg) 
 
 2023-03-11 | [Palude di Gloucester, Massachusetts (© Thomas H. Mitchell/Getty Images)](https://global.bing.com/th?id=OHR.LongWharf_IT-IT5995299794_UHD.jpg) 
