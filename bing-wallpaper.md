@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-14 | [Parco botanico di Ayia Napa, Cipro (© Tpopova/Getty Images)](https://global.bing.com/th?id=OHR.CyprusMaze_IT-IT7940627451_UHD.jpg) 
+
 2023-03-13 | [Quartieri Spagnoli, Napoli, Italia (© Cihan Bektas/Amazing Aerial)](https://global.bing.com/th?id=OHR.Cihan_Bektas_B03_03_IT-IT7231382966_UHD.jpg) 
 
 2023-03-12 | [Teatro nazionale di Cluj-Napoca, Romania (© Thomas Mueller/Shutterstock)](https://global.bing.com/th?id=OHR.TheaterRomania_IT-IT7062207948_UHD.jpg) 
