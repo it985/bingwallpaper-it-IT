@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-19 | [Barbagianni, Inghilterra (© Ondrej Prosicky/Getty Images)](https://global.bing.com/th?id=OHR.BarnOwlWinter_IT-IT0593848383_UHD.jpg) 
+
 2023-03-18 | [Cratere Gamboa, Marte (© NASA/JPL-Caltech/University of Arizona)](https://global.bing.com/th?id=OHR.MarsTars_IT-IT0079292622_UHD.jpg) 
 
 2023-03-17 | [Baia di Ballyvooney, Copper Coast Geopark, Irlanda (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.BallyvooneyCove_IT-IT9699051533_UHD.jpg) 
