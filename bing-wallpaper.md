@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-21 | [Gessetti a pastello colorati (© Stephen Shepherd/Plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_IT-IT1156012517_UHD.jpg) 
+
 2023-03-20 | [Croco viola (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.PurpleCrocus_IT-IT0814790503_UHD.jpg) 
 
 2023-03-19 | [Barbagianni, Inghilterra (© Ondrej Prosicky/Getty Images)](https://global.bing.com/th?id=OHR.BarnOwlWinter_IT-IT0593848383_UHD.jpg) 
