@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-23 | [Nuvole lenticolari, Patagonia (© Sasha Juliard/Shutterstock)](https://global.bing.com/th?id=OHR.CloudsPatagonia_IT-IT3153567067_UHD.jpg) 
+
 2023-03-22 | [Lago Powell, Stati Uniti (© Peter Schaefer/Alamy)](https://global.bing.com/th?id=OHR.LakePowellAerial_IT-IT2849674803_UHD.jpg) 
 
 2023-03-21 | [Gessetti a pastello colorati (© Stephen Shepherd/Plainpicture)](https://global.bing.com/th?id=OHR.ColourDay_IT-IT1156012517_UHD.jpg) 
