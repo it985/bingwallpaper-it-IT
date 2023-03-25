@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-25 | [Basilica di Assisi (© Maurizio Rellini/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.BasilicaAssisi_IT-IT3784069099_UHD.jpg) 
+
 2023-03-24 | [Teatro La Fenice, Venezia (© Hercules Milas/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TeatroFenice_IT-IT3199655399_UHD.jpg) 
 
 2023-03-23 | [Nuvole lenticolari, Patagonia (© Sasha Juliard/Shutterstock)](https://global.bing.com/th?id=OHR.CloudsPatagonia_IT-IT3153567067_UHD.jpg) 
