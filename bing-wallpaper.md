@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-28 | [La Via Lattea sopra le Tre Cime di Lavaredo, Tirolo, Italia  (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_IT-IT9623800923_UHD.jpg) 
+
 2023-03-27 | [Lo skyline di New York tra la nebbia (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_IT-IT2520444146_UHD.jpg) 
 
 2023-03-25 | [Basilica di Assisi (© Maurizio Rellini/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.BasilicaAssisi_IT-IT3784069099_UHD.jpg) 
