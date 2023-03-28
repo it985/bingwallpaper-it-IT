@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-03-29 | [Due Lamantini, Crystal River, Florida, Stati Uniti (© Gregory Sweeney/Getty Images)](https://global.bing.com/th?id=OHR.NuzzleManatee_IT-IT0566309775_UHD.jpg) 
+
 2023-03-28 | [La Via Lattea sopra le Tre Cime di Lavaredo, Tirolo, Italia  (© Juan Romero/Cavan Images)](https://global.bing.com/th?id=OHR.MWDolomites_IT-IT9623800923_UHD.jpg) 
 
 2023-03-27 | [Lo skyline di New York tra la nebbia (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.NYCClouds_IT-IT2520444146_UHD.jpg) 
