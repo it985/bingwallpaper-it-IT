@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-01 | [Rana volante di Giava (© kuritafsheen/Getty Images)](https://global.bing.com/th?id=OHR.FrogMonth_IT-IT3655283450_UHD.jpg) 
+
 2023-03-31 | [Fiume Steyr, Austria (© guenterguni/Getty Images)](https://global.bing.com/th?id=OHR.SteyrRiver_IT-IT3416305819_UHD.jpg) 
 
 2023-03-30 | [Piume di pavone (© Sarayut Thaneerat/Getty Images)](https://global.bing.com/th?id=OHR.PeacockFeathers_IT-IT3031908961_UHD.jpg) 
