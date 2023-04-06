@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-07 | [Piccoli castori eurasiatici, Finlandia (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_IT-IT2182399243_UHD.jpg) 
+
 2023-04-06 | [Luna crescente, Tucson, Arizona, USA  (© Tim Murphy/Shutterstock)](https://global.bing.com/th?id=OHR.ArizonaPinkMoon_IT-IT4213896448_UHD.jpg) 
 
 2023-04-05 | [Maschi di gallo cedrone a Kuusamo, Finlandia (© Markus Varesvuo/Minden Pictures)](https://global.bing.com/th?id=OHR.BlackGrouseLekking_IT-IT4430969183_UHD.jpg) 
