@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-09 | [Uova lituane decorate  (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_IT-IT9225867868_UHD.jpg) 
+
 2023-04-08 | [Il Pantheon di Roma, Lazio, Italia (© xbrchx/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.Pantheon_IT-IT9500878730_UHD.jpg) 
 
 2023-04-07 | [Piccoli castori eurasiatici, Finlandia (© Danny Green/Minden Pictures)](https://global.bing.com/th?id=OHR.KitsAspen_IT-IT2182399243_UHD.jpg) 
