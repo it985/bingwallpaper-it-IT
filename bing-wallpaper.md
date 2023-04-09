@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-10 | [Elefanti nel Parco Nazionale di Amboseli, Kenya (© Diana Robinson/Getty Images)](https://global.bing.com/th?id=OHR.ElephantTwins_IT-IT0072207434_UHD.jpg) 
+
 2023-04-09 | [Uova lituane decorate  (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_IT-IT9225867868_UHD.jpg) 
 
 2023-04-08 | [Il Pantheon di Roma, Lazio, Italia (© xbrchx/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.Pantheon_IT-IT9500878730_UHD.jpg) 
