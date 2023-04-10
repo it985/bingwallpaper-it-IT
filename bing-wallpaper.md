@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-11 | [Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_IT-IT7816887304_UHD.jpg) 
+
 2023-04-10 | [Elefanti nel Parco Nazionale di Amboseli, Kenya (© Diana Robinson/Getty Images)](https://global.bing.com/th?id=OHR.ElephantTwins_IT-IT0072207434_UHD.jpg) 
 
 2023-04-09 | [Uova lituane decorate  (© fotomem/Getty Images)](https://global.bing.com/th?id=OHR.LithuanianEggs_IT-IT9225867868_UHD.jpg) 
