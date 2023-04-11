@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-12 | [Vista della Terra dalla Stazione Spaziale Internazionale (© Tim Peake/ESA/NASA via Getty Images)](https://global.bing.com/th?id=OHR.EuropeFromISS_IT-IT0851690834_UHD.jpg) 
+
 2023-04-11 | [Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_IT-IT7816887304_UHD.jpg) 
 
 2023-04-10 | [Elefanti nel Parco Nazionale di Amboseli, Kenya (© Diana Robinson/Getty Images)](https://global.bing.com/th?id=OHR.ElephantTwins_IT-IT0072207434_UHD.jpg) 
