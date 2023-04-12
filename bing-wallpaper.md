@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-13 | [Parco Hitsujiyama, Prefettura di Saitama, Giappone (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_IT-IT2380570126_UHD.jpg) 
+
 2023-04-12 | [Vista della Terra dalla Stazione Spaziale Internazionale (© Tim Peake/ESA/NASA via Getty Images)](https://global.bing.com/th?id=OHR.EuropeFromISS_IT-IT0851690834_UHD.jpg) 
 
 2023-04-11 | [Mossy Grotto Falls, Columbia River Gorge, Oregon (© Chase Dekker Wild-Life Images/Getty Images)](https://global.bing.com/th?id=OHR.MossyGrottoFalls_IT-IT7816887304_UHD.jpg) 
