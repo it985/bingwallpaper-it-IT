@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-14 | [Stelle marine rosse, Mar Mediterraneo (© Hans Leijnse/Minden Pictures)](https://global.bing.com/th?id=OHR.RedSeaStars_IT-IT1751132764_UHD.jpg) 
+
 2023-04-13 | [Parco Hitsujiyama, Prefettura di Saitama, Giappone (© Takashi Images/Shutterstock)](https://global.bing.com/th?id=OHR.PhloxSubulata_IT-IT2380570126_UHD.jpg) 
 
 2023-04-12 | [Vista della Terra dalla Stazione Spaziale Internazionale (© Tim Peake/ESA/NASA via Getty Images)](https://global.bing.com/th?id=OHR.EuropeFromISS_IT-IT0851690834_UHD.jpg) 
