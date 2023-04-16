@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-17 | [Haiku, Giardini botanici reali di Kew, Londra, Inghilterra  (© Guy Bell/Alamy Live News)](https://global.bing.com/th?id=OHR.OneThousandSprings_IT-IT4206647958_UHD.jpg) 
+
 2023-04-16 | [Adelaide International Kite Festival, Australia (© Andrey Moisseyev/Alamy)](https://global.bing.com/th?id=OHR.KiteDay_IT-IT3478773106_UHD.jpg) 
 
 2023-04-15 | [“Together" di Lorenzo Quinn, Le Grande Piramidi di Giza, Il Cairo, Egitto (© Sima Diab/Getty Images)](https://global.bing.com/th?id=OHR.LorenzoQuinn_IT-IT2361937887_UHD.jpg) 
