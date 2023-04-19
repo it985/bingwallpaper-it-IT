@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-20 | [La Strada del gigante, Irlanda del Nord, Regno Unito (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_IT-IT5231557937_UHD.jpg) 
+
 2023-04-19 | [Torri medievali a San Gimignano, Siena (© Jason Langley/Cavan Images)](https://global.bing.com/th?id=OHR.SanGimignano1_IT-IT9409869098_UHD.jpg) 
 
 2023-04-18 | [Machu Picchu, Peru (© Dora Dalton/Getty Images)](https://global.bing.com/th?id=OHR.MPPUnesco_IT-IT3824162238_UHD.jpg) 
