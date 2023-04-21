@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-22 | [Urocione del Parco Nazionale delle isole Channel, California, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg) 
+
 2023-04-21 | [Procida, Campania, Italia (© Sean Pavone/Shutterstock)](https://global.bing.com/th?id=OHR.ProcidaItaly_IT-IT5234311599_UHD.jpg) 
 
 2023-04-20 | [La Strada del gigante, Irlanda del Nord, Regno Unito (© Dieter Meyrl/Getty Images)](https://global.bing.com/th?id=OHR.NIrelandGiants_IT-IT5231557937_UHD.jpg) 
