@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-24 | [Cantina nella Foresta Bavarese, Germania (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_IT-IT2051034569_UHD.jpg) 
+
 2023-04-23 | [Biblioteca civica di Stoccarda, Germania (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_IT-IT6419135185_UHD.jpg) 
 
 2023-04-22 | [Urocione del Parco Nazionale delle isole Channel, California, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.EarthDayFox_IT-IT5922500776_UHD.jpg) 
