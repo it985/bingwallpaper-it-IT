@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-25 | [Festa della Liberazione (© Silvio Verrecchia/EyeEm/Getty Images)](https://global.bing.com/th?id=OHR.FrecceTricolori_IT-IT2306161494_UHD.jpg) 
+
 2023-04-24 | [Cantina nella Foresta Bavarese, Germania (© Andreas Zerndl/Getty Images)](https://global.bing.com/th?id=OHR.FranconianWineCellar_IT-IT2051034569_UHD.jpg) 
 
 2023-04-23 | [Biblioteca civica di Stoccarda, Germania (© Axel Brunst/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.StuttgartPublicLibrary_IT-IT6419135185_UHD.jpg) 
