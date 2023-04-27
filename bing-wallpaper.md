@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-28 | [Boschetto di Mariposa nel Parco Nazionale dello Yosemite, California (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_IT-IT8703227587_UHD.jpg) 
+
 2023-04-27 | [Alpe di Siusi, Dolomiti, Italia (© primeimages/Getty Images)](https://global.bing.com/th?id=OHR.ItalyDolomitesSeiserAlm_IT-IT4289580227_UHD.jpg) 
 
 2023-04-26 | [Gufi della Virginia (© Michael Morse/Getty Images)](https://global.bing.com/th?id=OHR.GHOAudubonDay_IT-IT7709502144_UHD.jpg) 
