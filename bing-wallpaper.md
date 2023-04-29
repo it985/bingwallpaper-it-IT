@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-04-30 | [Preservation Hall, New Orleans, Louisiana, Stati Uniti (© Cosmo Condina North America/Alamy)](https://global.bing.com/th?id=OHR.ExteriorPreservationHall_IT-IT1147958461_UHD.jpg) 
+
 2023-04-29 | [La Via Lattea vista dal Parco Nazionale di Joshua Tree, California, Stati Uniti (© Schroptschop/Getty Images)](https://global.bing.com/th?id=OHR.JTNPMilkyWay_IT-IT0241234588_UHD.jpg) 
 
 2023-04-28 | [Boschetto di Mariposa nel Parco Nazionale dello Yosemite, California (© Orbon Alija/Getty Images)](https://global.bing.com/th?id=OHR.MariposaGrove_IT-IT8703227587_UHD.jpg) 
