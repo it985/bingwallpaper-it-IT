@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-03 | [Gnu nel Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg) 
+
 2023-05-02 | [I laghi di Jöriseen nelle Alpi del Silvretta, Svizzera (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg) 
 
 2023-05-01 | [Ponte del Quebec sul fiume San Lorenzo, Canada  (© Ronald Santerre/Getty Images)](https://global.bing.com/th?id=OHR.QuebecCityBridge_IT-IT2390988840_UHD.jpg) 
