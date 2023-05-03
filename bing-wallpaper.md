@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-04 | [Rovine Maya nel Tikal, Guatemala (© THP Creative/Getty Images)](https://global.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg) 
+
 2023-05-03 | [Gnu nel Maasai Mara, Kenya (© Matt Polski/Getty Images)](https://global.bing.com/th?id=OHR.ThreeWildebeest_IT-IT3805881299_UHD.jpg) 
 
 2023-05-02 | [I laghi di Jöriseen nelle Alpi del Silvretta, Svizzera (© Florin Baumann/Getty Images)](https://global.bing.com/th?id=OHR.KlostersSerneus_IT-IT3251495028_UHD.jpg) 
