@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-06 | [Azalee reali in fiore sul monte Hwangmaesan, Corea del Sud (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg) 
+
 2023-05-05 | [Chiesa di Nuestra Señora de los Remedios, Puebla, Messico (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg) 
 
 2023-05-04 | [Rovine Maya nel Tikal, Guatemala (© THP Creative/Getty Images)](https://global.bing.com/th?id=OHR.RebelBase_IT-IT4204234662_UHD.jpg) 
