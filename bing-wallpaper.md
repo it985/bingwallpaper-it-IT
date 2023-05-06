@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-07 | [Cucciolo di foca, isola di Lundy, Inghilterra (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_IT-IT6694983805_UHD.jpg) 
+
 2023-05-06 | [Azalee reali in fiore sul monte Hwangmaesan, Corea del Sud (© Stock for you/Shutterstock)](https://global.bing.com/th?id=OHR.HwangmaesanAzaleas_IT-IT3245665910_UHD.jpg) 
 
 2023-05-05 | [Chiesa di Nuestra Señora de los Remedios, Puebla, Messico (© Radius Images/Shutterstock)](https://global.bing.com/th?id=OHR.Popocatepetl_IT-IT2263518716_UHD.jpg) 
