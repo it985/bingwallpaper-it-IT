@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-09 | [Rovine di Pompei, Campania (© Massimo Ripani/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.Pompei_IT-IT4615926702_UHD.jpg) 
+
 2023-05-08 | [Arco Fragile, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_IT-IT7027496709_UHD.jpg) 
 
 2023-05-07 | [Cucciolo di foca, isola di Lundy, Inghilterra (© Henley Spiers/Minden Pictures)](https://global.bing.com/th?id=OHR.SealLaughing_IT-IT6694983805_UHD.jpg) 
