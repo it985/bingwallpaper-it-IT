@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-10 | [Faro di Cordouan, Royan, Charente, Francia (© FRTimelapse/Getty Images)](https://global.bing.com/th?id=OHR.CordouanLighthouse_IT-IT6579555278_UHD.jpg) 
+
 2023-05-09 | [Rovine di Pompei, Campania (© Massimo Ripani/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.Pompei_IT-IT4615926702_UHD.jpg) 
 
 2023-05-08 | [Arco Fragile, Arches National Park, Utah (© Mark Brodkin Photography/Getty Images)](https://global.bing.com/th?id=OHR.TheChaps_IT-IT7027496709_UHD.jpg) 
