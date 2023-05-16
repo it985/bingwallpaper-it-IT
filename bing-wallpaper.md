@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-17 | [Parco statale dei Ponti Naturali a Santa Cruz, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CormorantBridge_IT-IT8917929906_UHD.jpg) 
+
 2023-05-16 | [Pagaiare in canoa nell'Okefenokee National Wildlife Refuge, Georgia (© Brad Beck/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.AmericanWetlands_IT-IT8776833543_UHD.jpg) 
 
 2023-05-15 | [Morro Jable e Playa del Matorral, Fuerteventura, Isole Canarie (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.MorroJable_IT-IT8361270560_UHD.jpg) 
