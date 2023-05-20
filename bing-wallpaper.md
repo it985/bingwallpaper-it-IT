@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-21 | [Fiume Senna, Parigi, Francia (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_IT-IT0136817375_UHD.jpg) 
+
 2023-05-20 | [Api europee a Sheffield, Inghilterra (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_IT-IT9793007364_UHD.jpg) 
 
 2023-05-19 | [Rinoceronte di Sumatra, Parco nazionale di Way Kambas, Indonesia (© Cyril Ruoso/Minden Pictures)](https://global.bing.com/th?id=OHR.SumatranRhino_IT-IT9282232501_UHD.jpg) 
