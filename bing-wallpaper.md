@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-22 | [Vulcano Arenal, Monteverde, Costa Rica  (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg) 
+
 2023-05-21 | [Fiume Senna, Parigi, Francia (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_IT-IT0136817375_UHD.jpg) 
 
 2023-05-20 | [Api europee a Sheffield, Inghilterra (© Deborah Vernon/Alamy)](https://global.bing.com/th?id=OHR.EuropeanHoneybee_IT-IT9793007364_UHD.jpg) 
