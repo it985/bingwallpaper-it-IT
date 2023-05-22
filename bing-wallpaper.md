@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-23 | [La tartaruga scatola occidentale  (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg) 
+
 2023-05-22 | [Vulcano Arenal, Monteverde, Costa Rica  (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg) 
 
 2023-05-21 | [Fiume Senna, Parigi, Francia (© StockByM/Getty Images)](https://global.bing.com/th?id=OHR.PontdArcole_IT-IT0136817375_UHD.jpg) 
