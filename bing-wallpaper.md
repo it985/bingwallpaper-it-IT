@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-24 | [L'antica fortezza di Corfù, Grecia (© Netfalls Remy Musser/Shutterstock)](https://global.bing.com/th?id=OHR.OldFortress_IT-IT2107671514_UHD.jpg) 
+
 2023-05-23 | [La tartaruga scatola occidentale  (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.WesternBoxTurtle_IT-IT1413333123_UHD.jpg) 
 
 2023-05-22 | [Vulcano Arenal, Monteverde, Costa Rica  (© Kevin Wells/Getty Images)](https://global.bing.com/th?id=OHR.BiodiverseCostaRica_IT-IT0869035242_UHD.jpg) 
