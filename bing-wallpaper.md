@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-26 | [Vernazza, Cinque Terre, Italia (© Rubin Versigny/Getty Images)](https://global.bing.com/th?id=OHR.ItalyCinqueTerre_IT-IT2256387382_UHD.jpg) 
+
 2023-05-25 | [Pozzo del Papa scala e finestra a doppia elica, Orvieto (© Ben Robson Hull Photography/Getty Images)](https://global.bing.com/th?id=OHR.OrvietoWell_IT-IT7164285597_UHD.jpg) 
 
 2023-05-24 | [L'antica fortezza di Corfù, Grecia (© Netfalls Remy Musser/Shutterstock)](https://global.bing.com/th?id=OHR.OldFortress_IT-IT2107671514_UHD.jpg) 
