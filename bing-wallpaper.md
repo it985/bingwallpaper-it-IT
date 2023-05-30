@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-05-31 | [Cucciolo di lontra marina, Prince William Sound, Alaska  (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_IT-IT6594215443_UHD.jpg) 
+
 2023-05-30 | [Playa del Amor, Isole Marietas, Puerto Vallarta, Messico  (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_IT-IT5182417860_UHD.jpg) 
 
 2023-05-29 | [Grand Cul-de-Sac Marin, Parco Nazionale della Guadalupa, Piccole Antille  (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.Antilles_IT-IT7910228854_UHD.jpg) 
