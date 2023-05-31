@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-01 | [Immagine aerea della Grande barriera corallina, Australia (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_IT-IT7365437503_UHD.jpg) 
+
 2023-05-31 | [Cucciolo di lontra marina, Prince William Sound, Alaska  (© Donald M. Jones/Minden Pictures)](https://global.bing.com/th?id=OHR.WorldOtterDay_IT-IT6594215443_UHD.jpg) 
 
 2023-05-30 | [Playa del Amor, Isole Marietas, Puerto Vallarta, Messico  (© ferrantraite/Getty Images)](https://global.bing.com/th?id=OHR.HiddenBeach_IT-IT5182417860_UHD.jpg) 
