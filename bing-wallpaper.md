@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-03 | [Sentiero South Kaibab nel Parco Nazionale del Grand Canyon, Arizona, Stati Uniti (© Roman Khomlyak/Getty Images)](https://global.bing.com/th?id=OHR.SouthKaibabTrail_IT-IT5648929650_UHD.jpg) 
+
 2023-06-02 | [Festa della Repubblica Italiana, Roma, Italia (© Kiparisas/Shutterstock)](https://global.bing.com/th?id=OHR.FestadellaRepubblica_IT-IT4688847105_UHD.jpg) 
 
 2023-06-01 | [Immagine aerea della Grande barriera corallina, Australia (© AirPano LLC/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ReefAwareness_IT-IT7365437503_UHD.jpg) 
