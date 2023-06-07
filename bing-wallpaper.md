@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-08 | [La megattera (© Philip Thurston/Getty Images)](https://global.bing.com/th?id=OHR.PlayfulHumpback_IT-IT3692296817_UHD.jpg) 
+
 2023-06-07 | [Pueblo Bonito, Parco nazionale storico della cultura Chaco , Nuovo Messico, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.ChacoCulture_IT-IT2917728990_UHD.jpg) 
 
 2023-06-06 | [Le falesie di Etretat, Normandia, Francia (© MarcelloLand/Getty Images)](https://global.bing.com/th?id=OHR.CliffsEtretat_IT-IT8813187873_UHD.jpg) 
