@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-12 | [Pianta di fico d'India, Parco Nazionale di Big Bend, Texas, Stati Uniti (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg) 
+
 2023-06-11 | [Airone golia, Parco nazionale di Kruger, Sudafrica (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg) 
 
 2023-06-10 | [La Cattedrale di Porto, Portogallo (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.PortugalDay_IT-IT6704188860_UHD.jpg) 
