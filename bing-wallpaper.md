@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-13 | [Castelluccio, Parco nazionale dei Monti Sibillini, Italia (© Stefano Termanini/Getty Images)](https://global.bing.com/th?id=OHR.CastelluccioUmbria_IT-IT4944270639_UHD.jpg) 
+
 2023-06-12 | [Pianta di fico d'India, Parco Nazionale di Big Bend, Texas, Stati Uniti (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.BigBendAnniv_IT-IT0010435736_UHD.jpg) 
 
 2023-06-11 | [Airone golia, Parco nazionale di Kruger, Sudafrica (© Johan Swanepoel/Alamy)](https://global.bing.com/th?id=OHR.GoliathHeron_IT-IT7577072381_UHD.jpg) 
