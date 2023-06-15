@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-16 | [Una tartaruga embricata che nuota vicino ad Akajima, Okinawa, Giappone (© Robert Mallon/Getty Images)](https://global.bing.com/th?id=OHR.HawksbillTurtle_IT-IT4337897539_UHD.jpg) 
+
 2023-06-15 | [Lucciole sincrone, Parco Nazionale delle Great Smoky Mountains, Tennessee, Stati Uniti (© Floris Van Bruegel/Minden Pictures)](https://global.bing.com/th?id=OHR.SmokyFireflies_IT-IT3344018044_UHD.jpg) 
 
 2023-06-14 | [La città di Passavia riflessa nel Danubio, Baviera, Germania (© Scott Wilson/Alamy)](https://global.bing.com/th?id=OHR.PassauSunsetJune_IT-IT1818534343_UHD.jpg) 
