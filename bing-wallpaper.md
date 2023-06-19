@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-20 | [Aquila di mare testabianca, Foresta Nazionale di Tongass, Alaska (© Jaynes Gallery/Shutterstock)](https://global.bing.com/th?id=OHR.EagleTree_IT-IT7463150874_UHD.jpg) 
+
 2023-06-19 | [Piccolo di capriolo che corre sull'erba in Normandia, Francia (© Gerard Lacz/Minden)](https://global.bing.com/th?id=OHR.Fawn_IT-IT6416189711_UHD.jpg) 
 
 2023-06-18 | [Vista di Roma da Castel Sant’Angelo, Roma, Italia (© Getty Images)](https://global.bing.com/th?id=OHR.RomeView_IT-IT9288537462_UHD.jpg) 
