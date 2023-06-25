@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-26 | [Castello di Villandry e giardino, Valle della Loira, Francia (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg) 
+
 2023-06-25 | [Il Tesoro, Petra, Giornadia (© WitthayaP/Shutterstock)](https://global.bing.com/th?id=OHR.PetraTreasury_IT-IT8544676447_UHD.jpg) 
 
 2023-06-24 | [Baia di Nha Phu, Nha Trang, Vietnam (© Thang Tat Nguyen/Getty Images)](https://global.bing.com/th?id=OHR.NhaTrang_IT-IT8851415137_UHD.jpg) 
