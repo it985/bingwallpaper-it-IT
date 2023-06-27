@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-28 | [Bandiere e coriandoli arcobaleno, Reykjavík, Islanda (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg) 
+
 2023-06-27 | [Sedona, Arizona, USA (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg) 
 
 2023-06-26 | [Castello di Villandry e giardino, Valle della Loira, Francia (© VLADJ55/Shutterstock)](https://global.bing.com/th?id=OHR.VillandryGarden_IT-IT7596299422_UHD.jpg) 
