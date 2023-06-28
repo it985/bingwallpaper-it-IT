@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-29 | [Capo Caccia, Alghero (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg) 
+
 2023-06-28 | [Bandiere e coriandoli arcobaleno, Reykjavík, Islanda (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg) 
 
 2023-06-27 | [Sedona, Arizona, USA (© Jonathan Ross/Getty Images)](https://global.bing.com/th?id=OHR.SedonaSunset_IT-IT6775743952_UHD.jpg) 
