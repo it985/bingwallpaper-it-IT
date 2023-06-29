@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-06-30 | [Lago di Braies, Bolzano (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg) 
+
 2023-06-29 | [Capo Caccia, Alghero (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg) 
 
 2023-06-28 | [Bandiere e coriandoli arcobaleno, Reykjavík, Islanda (© Arctic-Images/Getty Images)](https://global.bing.com/th?id=OHR.PrideIceland_IT-IT6514016290_UHD.jpg) 
