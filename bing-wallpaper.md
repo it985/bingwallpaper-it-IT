@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-01 | [Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)](https://global.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg) 
+
 2023-06-30 | [Lago di Braies, Bolzano (© Anton Petrus/Getty Images)](https://global.bing.com/th?id=OHR.LakeBraies_IT-IT3865715087_UHD.jpg) 
 
 2023-06-29 | [Capo Caccia, Alghero (© Francesco Riccardo Iacomino/Getty Images)](https://global.bing.com/th?id=OHR.AlgheroCapoCaccia_IT-IT6529245223_UHD.jpg) 
