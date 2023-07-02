@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-03 | [Un coyote a Banff, Canada (© Harry Collins/Getty Images)](https://global.bing.com/th?id=OHR.CoyoteBanff_IT-IT2529436922_UHD.jpg) 
+
 2023-07-02 | [Acquedotto di Veluwemeer, Paesi Bassi (© Frolova Elena/Getty Images)](https://global.bing.com/th?id=OHR.HalfwayBoats_IT-IT1946510861_UHD.jpg) 
 
 2023-07-01 | [Ciclisti del Tour de France attraversano il Pont du Gard, Francia (© Gonzalo Fuentes/Reuters)](https://global.bing.com/th?id=OHR.PelotonPont_IT-IT1171234733_UHD.jpg) 
