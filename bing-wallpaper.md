@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-05 | [Spiaggia di Porto Timoni a Corfù, Grecia (© nantonov/Getty Images)](https://global.bing.com/th?id=OHR.CorfuBeach_IT-IT3660908629_UHD.jpg) 
+
 2023-07-04 | [Parco nazionale delle Grasslands, Saskatchewan, Canada (© Robert Postma/Getty Images)](https://global.bing.com/th?id=OHR.GrasslandsNationalParkSaskachewan_IT-IT3302807559_UHD.jpg) 
 
 2023-07-03 | [Un coyote a Banff, Canada (© Harry Collins/Getty Images)](https://global.bing.com/th?id=OHR.CoyoteBanff_IT-IT2529436922_UHD.jpg) 
