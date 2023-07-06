@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-07 | [Baccelli di cacao di Ambanja, Madagascar (© pierivb/Getty Images)](https://global.bing.com/th?id=OHR.CocoaPods_IT-IT5102977472_UHD.jpg) 
+
 2023-07-06 | [Pinguini rockhopper meridionali, Isole Falkland (© Tony Beck/Getty Images)](https://global.bing.com/th?id=OHR.KissingPenguins_IT-IT4154575174_UHD.jpg) 
 
 2023-07-05 | [Spiaggia di Porto Timoni a Corfù, Grecia (© nantonov/Getty Images)](https://global.bing.com/th?id=OHR.CorfuBeach_IT-IT3660908629_UHD.jpg) 
