@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-11 | [Hong Kong (© leungchopan/Getty Images)](https://global.bing.com/th?id=OHR.WorldPopDay_IT-IT9604532087_UHD.jpg) 
+
 2023-07-10 | [Campo di lavanda, Somerset, Inghilterra (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_IT-IT8631560565_UHD.jpg) 
 
 2023-07-09 | [Fiume Mosella, villaggio di Kröv, Germania (© Jorg Greuel/Getty Images)](https://global.bing.com/th?id=OHR.MoselleRiver_IT-IT6706244041_UHD.jpg) 
