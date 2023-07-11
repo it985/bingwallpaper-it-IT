@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-12 | [Bar sulla sabbia nella Riserva Naturale di Nakupenda Beach, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_IT-IT0086147539_UHD.jpg) 
+
 2023-07-11 | [Hong Kong (© leungchopan/Getty Images)](https://global.bing.com/th?id=OHR.WorldPopDay_IT-IT9604532087_UHD.jpg) 
 
 2023-07-10 | [Campo di lavanda, Somerset, Inghilterra (© Doug Chinnery/Getty Images)](https://global.bing.com/th?id=OHR.SomersetLavender_IT-IT8631560565_UHD.jpg) 
