@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-14 | [Squali pinna nera della barriera corallina, Maldive (© Filippo Bacci/Getty Images)](https://global.bing.com/th?id=OHR.BlacktipSharks_IT-IT3592191686_UHD.jpg) 
+
 2023-07-13 | [Parco Nazionale di Zhangye Danxia, Gansu, Cina (© TONNAJA/Getty Images)](https://global.bing.com/th?id=OHR.ZhangyeGeopark_IT-IT0499587285_UHD.jpg) 
 
 2023-07-12 | [Bar sulla sabbia nella Riserva Naturale di Nakupenda Beach, Zanzibar, Tanzania (© Lubos Paukeje/Alamy)](https://global.bing.com/th?id=OHR.NakupendaBeach_IT-IT0086147539_UHD.jpg) 
