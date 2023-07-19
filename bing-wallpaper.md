@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-20 | [La luna vista dalla navicella Orion della missione Artemis della NASA (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_IT-IT7012030317_UHD.jpg) 
+
 2023-07-19 | [Duomo di San Pietro, Modica, Italia (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.DuomoModica_IT-IT4321167712_UHD.jpg) 
 
 2023-07-18 | [Grande bucero, Parco nazionale di Khao Yai, Thailandia (© kajornyot wildlife photography/Shutterstock)](https://global.bing.com/th?id=OHR.BucerosBicornis_IT-IT3646182612_UHD.jpg) 
