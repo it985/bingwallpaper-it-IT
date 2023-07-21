@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-22 | [Polignano a Mare, Puglia (© Sky_Blue/Getty Images)](https://global.bing.com/th?id=OHR.PolignanoBari_IT-IT5469069953_UHD.jpg) 
+
 2023-07-21 | [Ponte di Storseisundet, Strada dell'Oceano Atlantico, Norvegia (© Morten Falch Sortland/Getty Images)](https://global.bing.com/th?id=OHR.BridgeNorway_IT-IT5538215979_UHD.jpg) 
 
 2023-07-20 | [La luna vista dalla navicella Orion della missione Artemis della NASA (© NASA)](https://global.bing.com/th?id=OHR.MoonDayArtemis_IT-IT7012030317_UHD.jpg) 
