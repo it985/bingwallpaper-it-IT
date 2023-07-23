@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-24 | [Zebre nel Parco Nazionale Tarangire, Tanzania (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.ZebraCousins_IT-IT4929634782_UHD.jpg) 
+
 2023-07-23 | [Tenuta del tè di Edimburgo, Nuwara Eliya, Sri Lanka (© Jeremy Woodhouse/Getty Images)](https://global.bing.com/th?id=OHR.TeaEstate_IT-IT5131350973_UHD.jpg) 
 
 2023-07-22 | [Polignano a Mare, Puglia (© Sky_Blue/Getty Images)](https://global.bing.com/th?id=OHR.PolignanoBari_IT-IT5469069953_UHD.jpg) 
