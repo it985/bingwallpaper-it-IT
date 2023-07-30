@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-07-31 | [Casa nella roccia, Parco nazionale di Hocking Hills, Ohio  (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_IT-IT3726334751_UHD.jpg) 
+
 2023-07-30 | [Terreni agricoli nel Palouse, Washington, Stati Uniti (© EJ-J/Getty Images)](https://global.bing.com/th?id=OHR.PalouseHills_IT-IT1015358131_UHD.jpg) 
 
 2023-07-29 | [Tigre del Bengala, Parco nazionale di Ranthambore, India (© Andy Rouse/Minden Pictures)](https://global.bing.com/th?id=OHR.TigerIndia_IT-IT4957354565_UHD.jpg) 
