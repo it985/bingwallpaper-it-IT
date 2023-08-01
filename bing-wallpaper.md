@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-02 | [“Sandstone butte” nel Parco nazionale di Capitol Reef, Utah, USA (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CapitolButte_IT-IT7118088520_UHD.jpg) 
+
 2023-08-01 | [Il Monte Foraker visto da Denali, Parco Nazionale di Denali, Alaska, USA (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DenaliClimber_IT-IT5864283089_UHD.jpg) 
 
 2023-07-31 | [Casa nella roccia, Parco nazionale di Hocking Hills, Ohio  (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.RockHouse_IT-IT3726334751_UHD.jpg) 
