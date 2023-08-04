@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-05 | [Pulcinella di mare, Islanda (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_IT-IT2092454905_UHD.jpg) 
+
 2023-08-04 | [Abbazia di Tintern, Galles (© matthibcn/Getty Images)](https://global.bing.com/th?id=OHR.GothicRuins_IT-IT1962956673_UHD.jpg) 
 
 2023-08-03 | [Riserva naturale di Zelenci, Slovenia (© Andrey Danilovich/Getty Images)](https://global.bing.com/th?id=OHR.ZelenciSprings_IT-IT8957946104_UHD.jpg) 
