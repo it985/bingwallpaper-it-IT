@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-07 | [Faro di Bodie Island, Nags Head, Carolina del Nord (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_IT-IT7342146060_UHD.jpg) 
+
 2023-08-06 | [Kagami-ike (stagno degli specchi), Nagano, Giappone (© Shoji Fujita/Getty Images)](https://global.bing.com/th?id=OHR.NaganoPond_IT-IT2333262550_UHD.jpg) 
 
 2023-08-05 | [Pulcinella di mare, Islanda (© Peter Hering/Minden Pictures)](https://global.bing.com/th?id=OHR.AtlanticPuffin_IT-IT2092454905_UHD.jpg) 
