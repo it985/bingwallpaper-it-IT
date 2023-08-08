@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-09 | [Opera d'arte indigena, Centro d'arte Ngaruwanajirri (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_IT-IT6904548782_UHD.jpg) 
+
 2023-08-08 | [Autostrade a Taipei, Taiwan (© Tavarius/Shutterstock)](https://global.bing.com/th?id=OHR.InfinityTaipei_IT-IT6968967057_UHD.jpg) 
 
 2023-08-07 | [Faro di Bodie Island, Nags Head, Carolina del Nord (© Michael Ver Sprill/Getty Images)](https://global.bing.com/th?id=OHR.BodieNC_IT-IT7342146060_UHD.jpg) 
