@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-11 | [Saline al tramonto, Marsala (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.MarsalaSalt_IT-IT4114634251_UHD.jpg) 
+
 2023-08-10 | [Notte di San Lorenzo (© Francesco De Marco/Shutterstock)](https://global.bing.com/th?id=OHR.SanLorenzo_IT-IT6813005251_UHD.jpg) 
 
 2023-08-09 | [Opera d'arte indigena, Centro d'arte Ngaruwanajirri (© Robert Wyatt/Alamy)](https://global.bing.com/th?id=OHR.BathurstArt_IT-IT6904548782_UHD.jpg) 
