@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-13 | [Pioggia delle Perseidi, Parco nazionale di Cottonwood Canyon, Oregon, Stati Uniti (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_IT-IT7659438199_UHD.jpg) 
+
 2023-08-12 | [Una famiglia di elefanti presso il Parco nazionale di Amboseli, Kenya (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.ThreeElephants_IT-IT7027027610_UHD.jpg) 
 
 2023-08-11 | [Saline al tramonto, Marsala (© Ibrahim Suha Derbent/Getty Images)](https://global.bing.com/th?id=OHR.MarsalaSalt_IT-IT4114634251_UHD.jpg) 
