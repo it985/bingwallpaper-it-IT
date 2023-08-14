@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-15 | [La Maddalena, Cala Coticcio, Sardegna, Italia (© Getty Images)](https://global.bing.com/th?id=OHR.LaMaddalena_IT-IT0405976334_UHD.jpg) 
+
 2023-08-14 | [Piccolo geco su una foglia  (© Darren Greenwood/Alamy)](https://global.bing.com/th?id=OHR.GeckoLeaf_IT-IT8317437276_UHD.jpg) 
 
 2023-08-13 | [Pioggia delle Perseidi, Parco nazionale di Cottonwood Canyon, Oregon, Stati Uniti (© Joshua Meador/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PerseidsOregon_IT-IT7659438199_UHD.jpg) 
