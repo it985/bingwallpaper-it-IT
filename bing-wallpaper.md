@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-17 | [Vista aerea di Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_IT-IT8257270083_UHD.jpg) 
+
 2023-08-16 | [Seven Mile Bridge di Key West, Florida, Stati Uniti (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_IT-IT1027953700_UHD.jpg) 
 
 2023-08-15 | [La Maddalena, Cala Coticcio, Sardegna, Italia (© Getty Images)](https://global.bing.com/th?id=OHR.LaMaddalena_IT-IT0405976334_UHD.jpg) 
