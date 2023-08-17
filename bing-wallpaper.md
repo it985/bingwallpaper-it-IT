@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-18 | ['Montagne di Avatar ', Parco forestale nazionale Zhangjiajie, Cina (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_IT-IT2135106636_UHD.jpg) 
+
 2023-08-17 | [Vista aerea di Manhattan, New York City (© Wojtek Zagorski/Getty Images)](https://global.bing.com/th?id=OHR.ManhattanAerial_IT-IT8257270083_UHD.jpg) 
 
 2023-08-16 | [Seven Mile Bridge di Key West, Florida, Stati Uniti (© Evgeny Vasenev/Cavan Images)](https://global.bing.com/th?id=OHR.KeyWestBridge_IT-IT1027953700_UHD.jpg) 
