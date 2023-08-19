@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-20 | [Faro di Start Point, South Devon, Inghilterra (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_IT-IT8401220658_UHD.jpg) 
+
 2023-08-19 | [Scoiattolo che guarda nell'obiettivo di una macchina fotografica (© Alfredo Piedrafita/Getty Images)](https://global.bing.com/th?id=OHR.CameraSquirrel_IT-IT9208434870_UHD.jpg) 
 
 2023-08-18 | ['Montagne di Avatar ', Parco forestale nazionale Zhangjiajie, Cina (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.AvatarMountain_IT-IT2135106636_UHD.jpg) 
