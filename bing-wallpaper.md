@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-22 | [Anfiteatro di El Jem, Tunisia (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.TunisiaAmphitheatre_IT-IT5133645566_UHD.jpg) 
+
 2023-08-21 | [Lago Emerald, South Klondike Highway, Canada (© artherng/Getty Images)](https://global.bing.com/th?id=OHR.EmeraldLakeYukon_IT-IT7373029287_UHD.jpg) 
 
 2023-08-20 | [Faro di Start Point, South Devon, Inghilterra (© Guy Edwardes/Minden Pictures)](https://global.bing.com/th?id=OHR.StartPointLight_IT-IT8401220658_UHD.jpg) 
