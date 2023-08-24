@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-25 | [Cascate di Yellowstone inferiori, Parco Nazionale di Yellowstone, Wyoming (© Tim Fitzharris/Minden Pictures)](https://global.bing.com/th?id=OHR.YellowstoneFalls_IT-IT0133423333_UHD.jpg) 
+
 2023-08-24 | [Shark Fin Cove, Davenport, California (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SharkFinCove_IT-IT2584929275_UHD.jpg) 
 
 2023-08-23 | [Cascata di Skógafoss, Islanda (© Maridav/Shutterstock)](https://global.bing.com/th?id=OHR.SkogafossWaterfall_IT-IT4739675900_UHD.jpg) 
