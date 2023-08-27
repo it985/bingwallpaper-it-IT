@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-28 | [Forte Lovrijenac, porto occidentale, Dubrovnik, Croazia (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_IT-IT2167312556_UHD.jpg) 
+
 2023-08-27 | [Veduta della città di Ragusa Ibla, città patrimonio dell'UNESCO (© DaLiu/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.RagusaIbla_IT-IT6191963185_UHD.jpg) 
 
 2023-08-26 | [Cattedrale di Berlino e Isola dei Musei, Berlino (© Rudy Balasko/Shutterstock)](https://global.bing.com/th?id=OHR.MuseumIsland_IT-IT1593981985_UHD.jpg) 
