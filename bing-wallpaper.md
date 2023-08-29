@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-30 | [Squalo balena, Ningaloo Reef, Australia occidentale (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_IT-IT4786204671_UHD.jpg) 
+
 2023-08-29 | [Lago Crescent a Dunhuang, provincia di Gansu, Cina (© R7 Photo/Shutterstock)](https://global.bing.com/th?id=OHR.CrescentLake_IT-IT9118936365_UHD.jpg) 
 
 2023-08-28 | [Forte Lovrijenac, porto occidentale, Dubrovnik, Croazia (© Benny Marty/Shutterstock)](https://global.bing.com/th?id=OHR.DubrovnikHarbor_IT-IT2167312556_UHD.jpg) 
