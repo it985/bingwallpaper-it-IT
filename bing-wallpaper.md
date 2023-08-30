@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-08-31 | [Cactus Saguaro, Monumento Nazionale di Ironwood, Arizona (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_IT-IT9614113737_UHD.jpg) 
+
 2023-08-30 | [Squalo balena, Ningaloo Reef, Australia occidentale (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_IT-IT4786204671_UHD.jpg) 
 
 2023-08-29 | [Lago Crescent a Dunhuang, provincia di Gansu, Cina (© R7 Photo/Shutterstock)](https://global.bing.com/th?id=OHR.CrescentLake_IT-IT9118936365_UHD.jpg) 
