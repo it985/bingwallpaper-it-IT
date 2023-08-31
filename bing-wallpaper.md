@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-01 | [Fungo Trametes versicolor, Brevard, North Carolina, Stati Uniti (© Bill Gozansky/Alamy)](https://global.bing.com/th?id=OHR.TurkeyTailMush_IT-IT6836911122_UHD.jpg) 
+
 2023-08-31 | [Cactus Saguaro, Monumento Nazionale di Ironwood, Arizona (© Jack Dykinga/Minden Pictures)](https://global.bing.com/th?id=OHR.IronwoodCactus_IT-IT9614113737_UHD.jpg) 
 
 2023-08-30 | [Squalo balena, Ningaloo Reef, Australia occidentale (© Jason Edwards/Getty Images)](https://global.bing.com/th?id=OHR.NingalooShark_IT-IT4786204671_UHD.jpg) 
