@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-03 | [Regata Storica di Venezia, Venezia, Italia (© Getty Images)](https://global.bing.com/th?id=OHR.HistoricalRegatta_IT-IT6174180890_UHD.jpg) 
+
 2023-09-02 | [Colibrì di Allen, Santa Cruz, California, USA (© mallardg500/Getty Images)](https://global.bing.com/th?id=OHR.TinyHummer_IT-IT0334846745_UHD.jpg) 
 
 2023-09-01 | [Fungo Trametes versicolor, Brevard, North Carolina, Stati Uniti (© Bill Gozansky/Alamy)](https://global.bing.com/th?id=OHR.TurkeyTailMush_IT-IT6836911122_UHD.jpg) 
