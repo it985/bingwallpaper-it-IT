@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-05 | [Monte Segla, Isola di Senja, Troms og Finnmark, Norvegia (© imageBROKER/Moritz Wolf/Getty Images)](https://global.bing.com/th?id=OHR.MountSegla_IT-IT4869636525_UHD.jpg) 
+
 2023-09-04 | [Paludi di Bourges, Francia  (© Tuul & Bruno Morandi/Getty Images)](https://global.bing.com/th?id=OHR.BourgesMarsh_IT-IT3651136733_UHD.jpg) 
 
 2023-09-03 | [Regata Storica di Venezia, Venezia, Italia (© Getty Images)](https://global.bing.com/th?id=OHR.HistoricalRegatta_IT-IT6174180890_UHD.jpg) 
