@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-09 | [Tempio di Wat Chaiwatthanaram, Parco storico di Ayutthaya, Thailandia  (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_IT-IT2272597242_UHD.jpg) 
+
 2023-09-08 | [Le case a schiera del Circus a Bath, Somerset, Inghilterra (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_IT-IT9829288820_UHD.jpg) 
 
 2023-09-07 | [Cammelli nel deserto, Emirati Arabi Uniti  (© Amazing Aerial Premium/Shutterstock)](https://global.bing.com/th?id=OHR.CamelsAbove_IT-IT6972066019_UHD.jpg) 
