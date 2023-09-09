@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-10 | [Coppia di trichechi nelle Svalbard, Norvegia (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_IT-IT3284663825_UHD.jpg) 
+
 2023-09-09 | [Tempio di Wat Chaiwatthanaram, Parco storico di Ayutthaya, Thailandia  (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_IT-IT2272597242_UHD.jpg) 
 
 2023-09-08 | [Le case a schiera del Circus a Bath, Somerset, Inghilterra (© Gavin Hellier/Getty Images)](https://global.bing.com/th?id=OHR.BathCircus_IT-IT9829288820_UHD.jpg) 
