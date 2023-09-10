@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-11 | [L’alba sui vigneti di Bordeaux, France (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_IT-IT6196597856_UHD.jpg) 
+
 2023-09-10 | [Coppia di trichechi nelle Svalbard, Norvegia (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_IT-IT3284663825_UHD.jpg) 
 
 2023-09-09 | [Tempio di Wat Chaiwatthanaram, Parco storico di Ayutthaya, Thailandia  (© Weerasak Saeku/Getty Images)](https://global.bing.com/th?id=OHR.AyutthayaTemple_IT-IT2272597242_UHD.jpg) 
