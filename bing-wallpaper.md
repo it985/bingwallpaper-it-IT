@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-12 | [Mare del Nord al tramonto, Norddorf, Isola di Amrum, Germania (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_IT-IT7467715287_UHD.jpg) 
+
 2023-09-11 | [L’alba sui vigneti di Bordeaux, France (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_IT-IT6196597856_UHD.jpg) 
 
 2023-09-10 | [Coppia di trichechi nelle Svalbard, Norvegia (© Mark Smith/Getty Images)](https://global.bing.com/th?id=OHR.WalrusSvalbard_IT-IT3284663825_UHD.jpg) 
