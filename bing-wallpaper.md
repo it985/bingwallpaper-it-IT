@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-13 | [Templi sulla collina di Hemakuta, Hampi, Karnataka, India (© Images of india/Alamy)](https://global.bing.com/th?id=OHR.HemakutaHill_IT-IT1160628582_UHD.jpg) 
+
 2023-09-12 | [Mare del Nord al tramonto, Norddorf, Isola di Amrum, Germania (© Frederick Doerschem/Getty Images)](https://global.bing.com/th?id=OHR.NorthSeaStairs_IT-IT7467715287_UHD.jpg) 
 
 2023-09-11 | [L’alba sui vigneti di Bordeaux, France (© Esperanza33/Getty Images)](https://global.bing.com/th?id=OHR.MarathonMedoc_IT-IT6196597856_UHD.jpg) 
