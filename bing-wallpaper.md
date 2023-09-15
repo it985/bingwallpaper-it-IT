@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-16 | [Passo dello Spluga, Svizzera (© Roberto Moiola/Getty Images)](https://global.bing.com/th?id=OHR.SplugenPass_IT-IT3581326681_UHD.jpg) 
+
 2023-09-15 | [Tramonto nel parco forestale di Glenariff, contea di Antrim, Irlanda (© Peter Zelei/Getty Images)](https://global.bing.com/th?id=OHR.GlenariffForest_IT-IT2978733344_UHD.jpg) 
 
 2023-09-14 | [Cavalli di Przewalski, Parco nazionale di Hustai, Mongolia (© Ondrej Prosicky/Shutterstock)](https://global.bing.com/th?id=OHR.MongoliaHorses_IT-IT8693610029_UHD.jpg) 
