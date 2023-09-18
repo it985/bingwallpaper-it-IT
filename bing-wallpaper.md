@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-19 | [Festa di San Gennaro a Mulberry Street, Little Italy, New York (© Philip Scalia/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SanGennaroMulberry_IT-IT4580164437_UHD.jpg) 
+
 2023-09-18 | [Vista della Via Lattea dal Parco Naturale dell'Alentejo, Portogallo (© Daniel Garrido/Getty Images)](https://global.bing.com/th?id=OHR.MilkyWayPortugal_IT-IT4456908903_UHD.jpg) 
 
 2023-09-17 | [Parapendio che sorvola le Dolomiti, visto dal Sass Pordoi (© Ilan Shacham/Getty Images)](https://global.bing.com/th?id=OHR.DolomitesParaglider_IT-IT3096263531_UHD.jpg) 
