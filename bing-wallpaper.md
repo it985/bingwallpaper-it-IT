@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-21 | [All'interno del Centro Nobel per la Pace, Oslo, Norvegia (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_IT-IT6268753930_UHD.jpg) 
+
 2023-09-20 | [Acquedotto di ispirazione romana, Parco Arkadia, Polonia (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_IT-IT5050525140_UHD.jpg) 
 
 2023-09-19 | [Festa di San Gennaro a Mulberry Street, Little Italy, New York (© Philip Scalia/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SanGennaroMulberry_IT-IT4580164437_UHD.jpg) 
