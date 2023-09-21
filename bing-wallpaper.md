@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-22 | [Maschi di rinoceronte bianco meridionale, Riserva privata di Shamwari, Sudafrica (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_IT-IT0997464933_UHD.jpg) 
+
 2023-09-21 | [All'interno del Centro Nobel per la Pace, Oslo, Norvegia (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_IT-IT6268753930_UHD.jpg) 
 
 2023-09-20 | [Acquedotto di ispirazione romana, Parco Arkadia, Polonia (© PATSTOCK/Getty Images)](https://global.bing.com/th?id=OHR.ArkadiaPark_IT-IT5050525140_UHD.jpg) 
