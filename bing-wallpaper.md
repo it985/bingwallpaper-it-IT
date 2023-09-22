@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-23 | [Pioppo e arenaria rossa nel Coyote Gulch, Glen Canyon National Recreation Area, Utah, Stati Uniti (© Stephen Matera/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CottonwoodCanyon_IT-IT2280037969_UHD.jpg) 
+
 2023-09-22 | [Maschi di rinoceronte bianco meridionale, Riserva privata di Shamwari, Sudafrica (© David Silverman/Getty Images)](https://global.bing.com/th?id=OHR.ShamwariRhino_IT-IT0997464933_UHD.jpg) 
 
 2023-09-21 | [All'interno del Centro Nobel per la Pace, Oslo, Norvegia (© Ilyas Ayub/Alamy)](https://global.bing.com/th?id=OHR.NobelNorway_IT-IT6268753930_UHD.jpg) 
