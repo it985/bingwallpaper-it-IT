@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-26 | [Parco da skate di Venice Beach, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_IT-IT4628971712_UHD.jpg) 
+
 2023-09-25 | [Lontra marina a Bartlett Cove, Parco Nazionale e riserva di Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_IT-IT3988644980_UHD.jpg) 
 
 2023-09-24 | [Fiume Fraser vicino al Monte Robson, Columbia Britannica, Canada (© phototropic/Getty Images)](https://global.bing.com/th?id=OHR.FraserRiverBC_IT-IT3080206802_UHD.jpg) 
