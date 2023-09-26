@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-27 | [Colline del Prosecco di Conegliano e Valdobbiadene, Veneto, Italia (© Olimpio Fantuz/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.ProseccoHills_IT-IT5807916558_UHD.jpg) 
+
 2023-09-26 | [Parco da skate di Venice Beach, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_IT-IT4628971712_UHD.jpg) 
 
 2023-09-25 | [Lontra marina a Bartlett Cove, Parco Nazionale e riserva di Glacier Bay, Alaska (© Andrew Peacock/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GlacierBayOtter_IT-IT3988644980_UHD.jpg) 
