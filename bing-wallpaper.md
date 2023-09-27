@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-28 | [Nave da carico presso un porto commerciale in Thailandia (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_IT-IT6800320885_UHD.jpg) 
+
 2023-09-27 | [Colline del Prosecco di Conegliano e Valdobbiadene, Veneto, Italia (© Olimpio Fantuz/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.ProseccoHills_IT-IT5807916558_UHD.jpg) 
 
 2023-09-26 | [Parco da skate di Venice Beach, Los Angeles, California (© EXTREME-PHOTOGRAPHER/Getty Images)](https://global.bing.com/th?id=OHR.VeniceSkatePark_IT-IT4628971712_UHD.jpg) 
