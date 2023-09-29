@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-09-30 | [Cascate del Dardagna in autunno, Bologna (© Alberto Ghizzi Panizza/Minden)](https://global.bing.com/th?id=OHR.DardagnaWaterfalls_IT-IT7337701837_UHD.jpg) 
+
 2023-09-29 | [Torre Jiaxiu sotto la luna piena, Guiyang, provincia di Guizhou, Cina (© Wang Yukun/Getty Images)](https://global.bing.com/th?id=OHR.GuiyangMoon_IT-IT0253411061_UHD.jpg) 
 
 2023-09-28 | [Nave da carico presso un porto commerciale in Thailandia (© Suriyapong Thongsawang/Getty Images)](https://global.bing.com/th?id=OHR.MaritimeDay_IT-IT6800320885_UHD.jpg) 
