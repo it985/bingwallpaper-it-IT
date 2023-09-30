@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-01 | [Il lago di Bled dal belvedere di Osojnica all'alba, Slovenia (© Rasica/Getty Images)](https://global.bing.com/th?id=OHR.LakeBledSunrise_IT-IT9781591413_UHD.jpg) 
+
 2023-09-30 | [Cascate del Dardagna in autunno, Bologna (© Alberto Ghizzi Panizza/Minden)](https://global.bing.com/th?id=OHR.DardagnaWaterfalls_IT-IT7337701837_UHD.jpg) 
 
 2023-09-29 | [Torre Jiaxiu sotto la luna piena, Guiyang, provincia di Guizhou, Cina (© Wang Yukun/Getty Images)](https://global.bing.com/th?id=OHR.GuiyangMoon_IT-IT0253411061_UHD.jpg) 
