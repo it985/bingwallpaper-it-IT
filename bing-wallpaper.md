@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-04 | [Giovani stelle in formazione nella Nebulosa Tarantola, Telescopio Spaziale James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_IT-IT1696643757_UHD.jpg) 
+
 2023-10-03 | [Spiaggia di Whitehaven, Isole Whitsunday, Queensland, Australia (© Coral Brunner/Shutterstock)](https://global.bing.com/th?id=OHR.WhitsundaySwirl_IT-IT2012760745_UHD.jpg) 
 
 2023-10-02 | [Fondazione Louis Vuitton al Bois de Boulogne, Parigi (© Atlantide Phototravel/Getty Images)](https://global.bing.com/th?id=OHR.VuittonFoundation_IT-IT8425877700_UHD.jpg) 
