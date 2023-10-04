@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-05 | [Pinguini Gentoo, Antartide (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_IT-IT0819312209_UHD.jpg) 
+
 2023-10-04 | [Giovani stelle in formazione nella Nebulosa Tarantola, Telescopio Spaziale James Webb (© NASA, ESA, CSA, STScI, Webb ERO Production Team)](https://global.bing.com/th?id=OHR.TarantulaNebula_IT-IT1696643757_UHD.jpg) 
 
 2023-10-03 | [Spiaggia di Whitehaven, Isole Whitsunday, Queensland, Australia (© Coral Brunner/Shutterstock)](https://global.bing.com/th?id=OHR.WhitsundaySwirl_IT-IT2012760745_UHD.jpg) 
