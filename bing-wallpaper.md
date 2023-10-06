@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-07 | [Orsi bruni che pescano salmoni alle cascate Brooks, Parco nazionale di Katmai, Alaska, Stati Uniti (© oksana.perkins/Shutterstock)](https://global.bing.com/th?id=OHR.GrizzlyFalls_IT-IT0353576964_UHD.jpg) 
+
 2023-10-06 | [Le cascate di Taughannock, New York, Stati Uniti (© Paul Massie Photography/Getty Images)](https://global.bing.com/th?id=OHR.TaughannockFalls_IT-IT9282123928_UHD.jpg) 
 
 2023-10-05 | [Pinguini Gentoo, Antartide (© Art Wolfe/Getty Images)](https://global.bing.com/th?id=OHR.GentooJump_IT-IT0819312209_UHD.jpg) 
