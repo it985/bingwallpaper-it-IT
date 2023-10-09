@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-10 | [Monte Sopris, Colorado, Stati Uniti (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_IT-IT4925798707_UHD.jpg) 
+
 2023-10-09 | [Petroglifi  indiani di Fremont, Jensen, Utah, Stati Uniti (© Dan Leeth/Alamy)](https://global.bing.com/th?id=OHR.FremontPetroglyph_IT-IT9013079131_UHD.jpg) 
 
 2023-10-08 | [La Barcolana, Golfo di Trieste, Italia (© Zakaz86/Getty Images)](https://global.bing.com/th?id=OHR.ItalyTriesteBarcolana_IT-IT2686315925_UHD.jpg) 
