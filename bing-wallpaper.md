@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-11 | [Colline Dipinte nel Monumento Nazionale John Day Fossil Beds, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_IT-IT9653915961_UHD.jpg) 
+
 2023-10-10 | [Monte Sopris, Colorado, Stati Uniti (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_IT-IT4925798707_UHD.jpg) 
 
 2023-10-09 | [Petroglifi  indiani di Fremont, Jensen, Utah, Stati Uniti (© Dan Leeth/Alamy)](https://global.bing.com/th?id=OHR.FremontPetroglyph_IT-IT9013079131_UHD.jpg) 
