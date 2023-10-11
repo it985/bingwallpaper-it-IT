@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-12 | [Vecchio fienile e campo di colza, regione di Palouse, Idaho, USA (© Terry Eggers/Getty Images)](https://global.bing.com/th?id=OHR.IdahoBarn_IT-IT0454477337_UHD.jpg) 
+
 2023-10-11 | [Colline Dipinte nel Monumento Nazionale John Day Fossil Beds, Oregon, USA (© Ben Herndon/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.JohnDayFossil_IT-IT9653915961_UHD.jpg) 
 
 2023-10-10 | [Monte Sopris, Colorado, Stati Uniti (© Jason Hatfield/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SoprisSunrise_IT-IT4925798707_UHD.jpg) 
