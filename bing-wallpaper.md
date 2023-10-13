@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-14 | [Eclissi solare anulare "Ring of Fire", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_IT-IT1853781586_UHD.jpg) 
+
 2023-10-13 | [Perugia, Fontana Maggiore (© Buena Vista Images/Getty Images)](https://global.bing.com/th?id=OHR.PerugiaFountainEurochocolate_IT-IT7296572620_UHD.jpg) 
 
 2023-10-12 | [Vecchio fienile e campo di colza, regione di Palouse, Idaho, USA (© Terry Eggers/Getty Images)](https://global.bing.com/th?id=OHR.IdahoBarn_IT-IT0454477337_UHD.jpg) 
