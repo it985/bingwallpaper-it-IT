@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-15 | [Riccio europeo che si ripara nella corteccia degli alberi, Sussex (© Jules Cox/Minden Pictures)](https://global.bing.com/th?id=OHR.AutumnHedgehog_IT-IT1498595438_UHD.jpg) 
+
 2023-10-14 | [Eclissi solare anulare "Ring of Fire", Doha, Qatar (© Sorin Furcoi/Getty Images)](https://global.bing.com/th?id=OHR.RingEclipse_IT-IT1853781586_UHD.jpg) 
 
 2023-10-13 | [Perugia, Fontana Maggiore (© Buena Vista Images/Getty Images)](https://global.bing.com/th?id=OHR.PerugiaFountainEurochocolate_IT-IT7296572620_UHD.jpg) 
