@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-19 | [Raccolta di ninfee, Delta del fiume Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://global.bing.com/th?id=OHR.WaterLilyVietnam_IT-IT8076028570_UHD.jpg) 
+
 2023-10-18 | [Rifugio nazionale della fauna selvatica di Kodiak, Isola di Kodiak, Alaska (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.KodiakAlaska_IT-IT8488894073_UHD.jpg) 
 
 2023-10-17 | [Antichi testi scolpiti da Persepoli, Iran (© George Hall/Alamy)](https://global.bing.com/th?id=OHR.SpreadsheetDay_IT-IT8741983462_UHD.jpg) 
