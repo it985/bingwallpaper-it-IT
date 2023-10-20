@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-21 | [Bassorilievi dell'antica città persiana di Persepoli, Iran (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.PersepolisRelief_IT-IT7224171772_UHD.jpg) 
+
 2023-10-20 | [Piccolo di bradipo pigmeo a tre dita, Isola Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.PygmySloth_IT-IT6815817585_UHD.jpg) 
 
 2023-10-19 | [Raccolta di ninfee, Delta del fiume Mekong, Long An, Vietnam (© Khanh Phan/Solent News/Shutterstock)](https://global.bing.com/th?id=OHR.WaterLilyVietnam_IT-IT8076028570_UHD.jpg) 
