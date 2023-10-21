@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-22 | [Il Ponte di Astoria-Megler sul fiume Columbia, Astoria, Oregon, Stati Uniti (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_IT-IT7575959627_UHD.jpg) 
+
 2023-10-21 | [Bassorilievi dell'antica città persiana di Persepoli, Iran (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.PersepolisRelief_IT-IT7224171772_UHD.jpg) 
 
 2023-10-20 | [Piccolo di bradipo pigmeo a tre dita, Isola Escudo de Veraguas, Panama (© Suzi Eszterhas/Minden Pictures)](https://global.bing.com/th?id=OHR.PygmySloth_IT-IT6815817585_UHD.jpg) 
