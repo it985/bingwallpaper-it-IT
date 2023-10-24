@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-25 | [Parco Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_IT-IT8917709693_UHD.jpg) 
+
 2023-10-23 | [Isola di San Giorgio Maggiore,Venezia, Italia (© Cihan Bektas/AmazingA)](https://global.bing.com/th?id=OHR.SanGiorgioMaggiore_IT-IT9222946405_UHD.jpg) 
 
 2023-10-22 | [Il Ponte di Astoria-Megler sul fiume Columbia, Astoria, Oregon, Stati Uniti (© Dan Mihai/Getty Images)](https://global.bing.com/th?id=OHR.AstoriaBridge_IT-IT7575959627_UHD.jpg) 
