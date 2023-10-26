@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-27 | [Il vecchio ponte di Sligachan, Isola di Skye, Scozia (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.OldBridgeSkye_IT-IT3352647362_UHD.jpg) 
+
 2023-10-26 | [Fogliame autunnale nel parco del Castello di Schönbrunn (© rusm/Getty Images)](https://global.bing.com/th?id=OHR.ViennaAutumn_IT-IT9164239542_UHD.jpg) 
 
 2023-10-25 | [Parco Grand Staircase-Escalante National Monument, Utah, USA (© Jeff Foott/Minden Pictures)](https://global.bing.com/th?id=OHR.GrandStaircase_IT-IT8917709693_UHD.jpg) 
