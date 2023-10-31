@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-10-31 | [Le lanterne di Halloween in veranda (© Bing Image Creator)](https://global.bing.com/th?id=OHR.HalloweenPorchAI_IT-IT0209206965_UHD.jpg) 
+
 2023-10-30 | [Corvo comune di vedetta su un ramo (© WildMedia/Shutterstock)](https://global.bing.com/th?id=OHR.AutumnRaven_IT-IT0004951220_UHD.jpg) 
 
 2023-10-29 | [Langhe, sito UNESCO in Piemonte (© Kelly van Dellen/Getty Images)](https://global.bing.com/th?id=OHR.LangheItaly_IT-IT0113842370_UHD.jpg) 
