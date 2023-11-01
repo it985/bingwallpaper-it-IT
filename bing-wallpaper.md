@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-01 | [Castello di Haut-Barr, Alsazia, Francia (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.HautBarr_IT-IT9951330243_UHD.jpg) 
+
 2023-10-31 | [Le lanterne di Halloween in veranda (© Bing Image Creator)](https://global.bing.com/th?id=OHR.HalloweenPorchAI_IT-IT0209206965_UHD.jpg) 
 
 2023-10-30 | [Corvo comune di vedetta su un ramo (© WildMedia/Shutterstock)](https://global.bing.com/th?id=OHR.AutumnRaven_IT-IT0004951220_UHD.jpg) 
