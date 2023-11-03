@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-03 | [Foglie di vite nei vigneti del Chianti in Toscana (© Massimo Santi/Getty Images)](https://global.bing.com/th?id=OHR.ChiantiTuscany_IT-IT9257296555_UHD.jpg) 
+
 2023-11-02 | [Saline nel bacino di Badwater, Parco Nazionale della Death Valley, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_IT-IT9897014974_UHD.jpg) 
 
 2023-11-01 | [Castello di Haut-Barr, Alsazia, Francia (© Andrea Pistolesi/Getty Images)](https://global.bing.com/th?id=OHR.HautBarr_IT-IT9951330243_UHD.jpg) 
