@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-04 | [Bisonte americano, Parco nazionale di Yellowstone, Wyoming (© Gary Gray/Getty Images)](https://global.bing.com/th?id=OHR.BisonSnow_IT-IT6079794906_UHD.jpg) 
+
 2023-11-03 | [Foglie di vite nei vigneti del Chianti in Toscana (© Massimo Santi/Getty Images)](https://global.bing.com/th?id=OHR.ChiantiTuscany_IT-IT9257296555_UHD.jpg) 
 
 2023-11-02 | [Saline nel bacino di Badwater, Parco Nazionale della Death Valley, California (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.DeathValleySalt_IT-IT9897014974_UHD.jpg) 
