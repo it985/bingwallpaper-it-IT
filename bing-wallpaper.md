@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-12 | [Lampade sulle rive del fiume Sarayu durante il Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_IT-IT1029399441_UHD.jpg) 
+
 2023-11-11 | [Estate di san Martino nella Val di Funes, Italia (© Achim Thomae/Getty Images)](https://global.bing.com/th?id=OHR.ValDiFunes_IT-IT0203212451_UHD.jpg) 
 
 2023-11-10 | [Parco nazionale delle Badlands, Sud Dakota, Stati Uniti (© Grant Ordelheide/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BadlandsSunrise_IT-IT9035430276_UHD.jpg) 
