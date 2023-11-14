@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-14 | [Lupini Ibridi Russell lungo il lago Tekapo, Nuova Zelanda (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RussellLupines_IT-IT2361733458_UHD.jpg) 
+
 2023-11-13 | [Antico uliveto nella Serra Tramuntana, Maiorca, Spagna  (© cinoby/Getty Images)](https://global.bing.com/th?id=OHR.OliveOrchard_IT-IT1918983389_UHD.jpg) 
 
 2023-11-12 | [Lampade sulle rive del fiume Sarayu durante il Diwali, Ayodhya, India (© SANJAY KANOJIA/AFP/Getty Images)](https://global.bing.com/th?id=OHR.DiwaliAyodhya_IT-IT1029399441_UHD.jpg) 
