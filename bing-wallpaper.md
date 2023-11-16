@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-16 | [Vista sull'Acropoli ateniese, Grecia (© Mlenny/Getty Images)](https://global.bing.com/th?id=OHR.AthensAcropolis_IT-IT3514656411_UHD.jpg) 
+
 2023-11-15 | [La Valle Rapa nel Parco Nazionale di Sarek, Svezia (© Hans Strand/Getty Images)](https://global.bing.com/th?id=OHR.SarekSweden_IT-IT3039153178_UHD.jpg) 
 
 2023-11-14 | [Lupini Ibridi Russell lungo il lago Tekapo, Nuova Zelanda (© Jeffrey Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.RussellLupines_IT-IT2361733458_UHD.jpg) 
