@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-21 | [Pino Loricato sul Monte Pollino, Potenza (© Renzi Tommaso/Getty Images)](https://global.bing.com/th?id=OHR.GiornataAlbero_IT-IT4061721168_UHD.jpg) 
+
 2023-11-20 | [Parco giochi Chapman Adventure nel Gathering Place, Tulsa, Oklahoma, USA (© Susan Vineyard/Alamy)](https://global.bing.com/th?id=OHR.ChapmanAdventure_IT-IT1638129617_UHD.jpg) 
 
 2023-11-19 | [Riserva naturale di Alam-Pedja, Estonia (© Sven Zacek/Minden Pictures)](https://global.bing.com/th?id=OHR.FrozenBog_IT-IT1429362673_UHD.jpg) 
