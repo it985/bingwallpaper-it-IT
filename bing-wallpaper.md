@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-24 | [Sentiero Hall of Mosses nella foresta pluviale di Hoh, Parco Nazionale Olimpico, Washington (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_IT-IT8394280522_UHD.jpg) 
+
 2023-11-23 | [Tramonto al Parco Nazionale del Teide, Tenerife, Isole Canarie, Spagna (© Javier Martínez Morán/Alamy)](https://global.bing.com/th?id=OHR.TeideNational_IT-IT6647681954_UHD.jpg) 
 
 2023-11-22 | [Val di Non, Trentino-Alto Adige (© Stefano Springhetti/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.ValdiNon_IT-IT6962165513_UHD.jpg) 
