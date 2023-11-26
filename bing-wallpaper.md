@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-26 | [Daini nel Parco di Bradgate, Leicestershire, Inghilterra  (© Chris Bainbridge/Alamy)](https://global.bing.com/th?id=OHR.BradgateFallow_IT-IT7620518692_UHD.jpg) 
+
 2023-11-25 | [Città di Toledo, Spagna (© Carlos Fernandez/Getty Images)](https://global.bing.com/th?id=OHR.TajoRiver_IT-IT6335699453_UHD.jpg) 
 
 2023-11-24 | [Sentiero Hall of Mosses nella foresta pluviale di Hoh, Parco Nazionale Olimpico, Washington (© James Randklev/Getty Images)](https://global.bing.com/th?id=OHR.HallofMosses_IT-IT8394280522_UHD.jpg) 
