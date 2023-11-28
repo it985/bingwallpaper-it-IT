@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-11-28 | [Giant land art fresco by artist Saype in Istanbul, Türkiye (© Chris McGrath/Getty Images)](https://global.bing.com/th?id=OHR.HumanKindness_IT-IT8962065761_UHD.jpg) 
+
 2023-11-27 | [Río Negro, Bacino amazzonico, Brasile (© Timothy Allen/Getty Images)](https://global.bing.com/th?id=OHR.RioNegro_IT-IT8563541659_UHD.jpg) 
 
 2023-11-26 | [Daini nel Parco di Bradgate, Leicestershire, Inghilterra  (© Chris Bainbridge/Alamy)](https://global.bing.com/th?id=OHR.BradgateFallow_IT-IT7620518692_UHD.jpg) 
