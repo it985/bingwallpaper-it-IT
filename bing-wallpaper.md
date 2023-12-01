@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-01 | [Iceberg, Mare di Ross, Antartide (© Michel Roggo/Minden Pictures)](https://global.bing.com/th?id=OHR.IcebergAntarctica_IT-IT9598451046_UHD.jpg) 
+
 2023-11-30 | [Lo Storr, un affioramento roccioso sull'Isola di Skye, Scozia (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.TrotternishStorr_IT-IT5546138012_UHD.jpg) 
 
 2023-11-29 | [Albero di Natale del Rockefeller Center, New York, USA (© Jonathan Orenstein/Getty Images)](https://global.bing.com/th?id=OHR.TreeLighting_IT-IT9195386541_UHD.jpg) 
