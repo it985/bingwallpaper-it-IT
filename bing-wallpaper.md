@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-05 | [Passo Pordoi, Sellaronda, vista dal Belvedere verso la Marmolada, Italia (© Johanna Huber/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.ValdiFassa_IT-IT6575730533_UHD.jpg) 
+
 2023-12-04 | [Una madre ghepardo e i suoi cuccioli nella Riserva Nazionale Masai Mara, Kenya, Africa (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_IT-IT4081105352_UHD.jpg) 
 
 2023-12-03 | [Formazioni rocciose di arenaria, Monumento naturale di Vermilion Cliffs, Arizona, Stati Uniti (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.VermilionCliffs_IT-IT1624216981_UHD.jpg) 
