@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-06 | [Il Globo della Scienza e dell'Innovazione, Meyrin, Svizzera (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_IT-IT7703237529_UHD.jpg) 
+
 2023-12-05 | [Passo Pordoi, Sellaronda, vista dal Belvedere verso la Marmolada, Italia (© Johanna Huber/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.ValdiFassa_IT-IT6575730533_UHD.jpg) 
 
 2023-12-04 | [Una madre ghepardo e i suoi cuccioli nella Riserva Nazionale Masai Mara, Kenya, Africa (© Scott Davis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.CheetahDay_IT-IT4081105352_UHD.jpg) 
