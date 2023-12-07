@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-07 | [La Gola di Verdon nelle Alpi dell'Alta Provenza, Francia (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_IT-IT8379623747_UHD.jpg) 
+
 2023-12-06 | [Il Globo della Scienza e dell'Innovazione, Meyrin, Svizzera (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_IT-IT7703237529_UHD.jpg) 
 
 2023-12-05 | [Passo Pordoi, Sellaronda, vista dal Belvedere verso la Marmolada, Italia (© Johanna Huber/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.ValdiFassa_IT-IT6575730533_UHD.jpg) 
