@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-08 | [Porto di La Rocque, St. Clement, Isola di Jersey (© Reinhard Schmid/Huber/eStock Photo)](https://global.bing.com/th?id=OHR.JerseyIsland_IT-IT8142541047_UHD.jpg) 
+
 2023-12-07 | [La Gola di Verdon nelle Alpi dell'Alta Provenza, Francia (© Hemis/Alamy)](https://global.bing.com/th?id=OHR.GrandCanyonVerdon_IT-IT8379623747_UHD.jpg) 
 
 2023-12-06 | [Il Globo della Scienza e dell'Innovazione, Meyrin, Svizzera (© Deyan Baric/Alamy)](https://global.bing.com/th?id=OHR.CERNCenter_IT-IT7703237529_UHD.jpg) 
