@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-11 | [L'inverno sui monti Huangshan, in Cina (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_IT-IT9771013774_UHD.jpg) 
+
 2023-12-10 | [Ultimi raggi di sole su un gruppo di dune, Sahara, Algeria (© AWL Images/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.SaharaDunes_IT-IT4256845784_UHD.jpg) 
 
 2023-12-09 | [Luci di Natale a Torbole, Trento (© Danny Iacob/Shutterstock)](https://global.bing.com/th?id=OHR.TorboleTrento_IT-IT9651438497_UHD.jpg) 
