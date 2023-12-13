@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-13 | [Cabine da pesca tradizionali, Svolvaer, Isole Lofoten, Norvegia (© Roberto Moiola/Sysaworld/Getty Images)](https://global.bing.com/th?id=OHR.LofotenRorbu_IT-IT7817886766_UHD.jpg) 
+
 2023-12-12 | [Stella rossa di Natale (© Yarygin/Getty Images)](https://global.bing.com/th?id=OHR.Poinsettia_IT-IT8682059998_UHD.jpg) 
 
 2023-12-11 | [L'inverno sui monti Huangshan, in Cina (© Hung Chung Chih/Shutterstock)](https://global.bing.com/th?id=OHR.MountainDayChina_IT-IT9771013774_UHD.jpg) 
