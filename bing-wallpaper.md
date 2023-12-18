@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-18 | [Stambecco sotto una forte nevicata, Alpi, Italia (© Paolino Massimiliano Manuel/Getty Images)](https://global.bing.com/th?id=OHR.KingAlps_IT-IT9812724645_UHD.jpg) 
+
 2023-12-17 | [Due beccofrusoni su un ramo, Canada (© Jim Cumming/Shutterstock)](https://global.bing.com/th?id=OHR.WinterWaxwings_IT-IT8371577177_UHD.jpg) 
 
 2023-12-16 | [Case della corporazione di Grand-Place, Bruxelles, Belgio (© Richard Taylor/Sime/eStock Photo)](https://global.bing.com/th?id=OHR.GrandPlaceXmas_IT-IT8072178284_UHD.jpg) 
