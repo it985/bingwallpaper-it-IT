@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-20 | [Villaggio in Val Gardena durante il Natale, Dolomiti, Trentino-Alto Adige (© Ingus Kruklitis/Getty Images)](https://global.bing.com/th?id=OHR.ValGardenaItaly_IT-IT1495340445_UHD.jpg) 
+
 2023-12-19 | [Albero di Natale nella Piazza del Castello Reale, Varsavia, Polonia (© Panther Media GmbH/Alamy)](https://global.bing.com/th?id=OHR.WarsawChristmas_IT-IT0745258849_UHD.jpg) 
 
 2023-12-18 | [Stambecco sotto una forte nevicata, Alpi, Italia (© Paolino Massimiliano Manuel/Getty Images)](https://global.bing.com/th?id=OHR.KingAlps_IT-IT9812724645_UHD.jpg) 
