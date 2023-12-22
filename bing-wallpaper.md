@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-22 | [Cerchio di pietre di Castlerigg, Parco nazionale del Lake District, Inghilterra (© John Finney Photography/Getty Images)](https://global.bing.com/th?id=OHR.CastleriggStoneCircleUK_IT-IT3335792096_UHD.jpg) 
+
 2023-12-21 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_IT-IT1809782695_UHD.jpg) 
 
 2023-12-20 | [Villaggio in Val Gardena durante il Natale, Dolomiti, Trentino-Alto Adige (© Ingus Kruklitis/Getty Images)](https://global.bing.com/th?id=OHR.ValGardenaItaly_IT-IT1495340445_UHD.jpg) 
