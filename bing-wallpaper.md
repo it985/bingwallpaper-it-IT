@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-23 | [Pinguini con mascherina, Isole Sandwich del Sud, Oceano Atlantico Meridionale (© Jan Vermeer/Minden Pictures)](https://global.bing.com/th?id=OHR.FestivusPenguins_IT-IT2939175390_UHD.jpg) 
+
 2023-12-22 | [Cerchio di pietre di Castlerigg, Parco nazionale del Lake District, Inghilterra (© John Finney Photography/Getty Images)](https://global.bing.com/th?id=OHR.CastleriggStoneCircleUK_IT-IT3335792096_UHD.jpg) 
 
 2023-12-21 | [Ljubljana, Slovenia (© kasto80/Getty images)](https://global.bing.com/th?id=OHR.LjubljanaLights_IT-IT1809782695_UHD.jpg) 
