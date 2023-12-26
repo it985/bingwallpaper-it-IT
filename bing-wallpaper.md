@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-26 | [Alba invernale a Dedham, Colchester, Inghilterra (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_IT-IT0476849181_UHD.jpg) 
+
 2023-12-25 | [Caribou che corrono nella neve, Alaska, USA (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_IT-IT1422624453_UHD.jpg) 
 
 2023-12-24 | [Albero di Natale in Piazza del Duomo, Milano (© Marco Bonfanti/Getty Images)](https://global.bing.com/th?id=OHR.MilanXmasTree_IT-IT2035512778_UHD.jpg) 
