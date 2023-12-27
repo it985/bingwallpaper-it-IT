@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-27 | [Kirkjufell, penisola di Snæfellsnes, Islanda (© Ratnakorn Piyasirisorost/Getty Images)](https://global.bing.com/th?id=OHR.KirkjufellAurora_IT-IT8493036808_UHD.jpg) 
+
 2023-12-26 | [Alba invernale a Dedham, Colchester, Inghilterra (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_IT-IT0476849181_UHD.jpg) 
 
 2023-12-25 | [Caribou che corrono nella neve, Alaska, USA (© Michael Quinton/Minden Pictures)](https://global.bing.com/th?id=OHR.CaribouChristmas_IT-IT1422624453_UHD.jpg) 
