@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-28 | [Balena megattera, Baia di Disko, Groenlandia (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_IT-IT6047849263_UHD.jpg) 
+
 2023-12-27 | [Kirkjufell, penisola di Snæfellsnes, Islanda (© Ratnakorn Piyasirisorost/Getty Images)](https://global.bing.com/th?id=OHR.KirkjufellAurora_IT-IT8493036808_UHD.jpg) 
 
 2023-12-26 | [Alba invernale a Dedham, Colchester, Inghilterra (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.BoxingDaySunrise_IT-IT0476849181_UHD.jpg) 
