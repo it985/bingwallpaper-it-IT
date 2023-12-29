@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-29 | [Quartiere di Oud-West, Amsterdam, Olanda (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_IT-IT8956401026_UHD.jpg) 
+
 2023-12-28 | [Balena megattera, Baia di Disko, Groenlandia (© Paul Souders/DanitaDelimont.com)](https://global.bing.com/th?id=OHR.GreenlandHumpback_IT-IT6047849263_UHD.jpg) 
 
 2023-12-27 | [Kirkjufell, penisola di Snæfellsnes, Islanda (© Ratnakorn Piyasirisorost/Getty Images)](https://global.bing.com/th?id=OHR.KirkjufellAurora_IT-IT8493036808_UHD.jpg) 
