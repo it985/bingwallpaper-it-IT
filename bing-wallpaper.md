@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2023-12-31 | [Fuochi artificiali di Venezia, Italia (© Patryk Kosmider/Getty Images)](https://global.bing.com/th?id=OHR.SantaMariaVenice_1185725818_IT-IT0984119913_UHD.jpg) 
+
 2023-12-30 | [Ponte Daiichi sul fiume Tadami, Fukushima, Giappone (© DoctorEgg/Getty Images)](https://global.bing.com/th?id=OHR.TadamiWinter_IT-IT9712600092_UHD.jpg) 
 
 2023-12-29 | [Quartiere di Oud-West, Amsterdam, Olanda (© George Pachantouris/Getty Images)](https://global.bing.com/th?id=OHR.BlueAmsterdam_IT-IT8956401026_UHD.jpg) 
