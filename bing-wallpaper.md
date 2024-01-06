@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-06 | [Artigianato natalizio a Piazza Navona, Roma (© piola666/Getty Images)](https://global.bing.com/th?id=OHR.BefanaPiazzaNavona_459973167_IT-IT4250570937_UHD.jpg) 
+
 2024-01-05 | [Festival Internazionale del Ghiaccio e della Neve, Harbin, Cina (© WANG ZHAO/AFP/Getty Images)](https://global.bing.com/th?id=OHR.HarbinFestival_IT-IT2915874871_UHD.jpg) 
 
 2024-01-04 | [Golden Gate Bridge, San Francisco, California, Stati Uniti (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.GoldenGateLight_IT-IT6075752946_UHD.jpg) 
