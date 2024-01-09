@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-09 | [Mongolfiere sopra il Rio Grande, Albuquerque, Nuovo Messico, USA (© Jennifer MacCornack/Shutterstock)](https://global.bing.com/th?id=OHR.BalloonDay_IT-IT9345867684_UHD.jpg) 
+
 2024-01-08 | [Sciatore al Passo del Bernina, Grigioni, Svizzera (© Francesco Bergamaschi/Getty Images)](https://global.bing.com/th?id=OHR.BerninaPass_IT-IT0635782959_UHD.jpg) 
 
 2024-01-07 | [Riserva Naturale Devils Marbles, Australia (© Yva Momatiuk and John Eastcott/Minden Pictures)](https://global.bing.com/th?id=OHR.DevilsMarbles_IT-IT1859405943_UHD.jpg) 
