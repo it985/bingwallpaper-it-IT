@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-19 | [Parco Nazionale dei Laghi di Plitvice, Croazia (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_IT-IT0587144378_UHD.jpg) 
+
 2024-01-18 | [Ponte Alessandro III, Parigi, Francia (© Sizun Eye/Getty Images)](https://global.bing.com/th?id=OHR.ParisBridge_IT-IT8868576406_UHD.jpg) 
 
 2024-01-17 | [Lupo durante un pisolino nel Parco nazionale della foresta bavarese, Germania (© Raimund Linke/Getty Images)](https://global.bing.com/th?id=OHR.SleepyWolf_IT-IT5699370388_UHD.jpg) 
