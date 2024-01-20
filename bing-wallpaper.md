@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-20 | [Pinguini Macaroni, Passaggio di Drake, Cile (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.MacaroniPenguins_IT-IT1123912901_UHD.jpg) 
+
 2024-01-19 | [Parco Nazionale dei Laghi di Plitvice, Croazia (© Massimo_S8/Getty Images)](https://global.bing.com/th?id=OHR.PlitviceWinter_IT-IT0587144378_UHD.jpg) 
 
 2024-01-18 | [Ponte Alessandro III, Parigi, Francia (© Sizun Eye/Getty Images)](https://global.bing.com/th?id=OHR.ParisBridge_IT-IT8868576406_UHD.jpg) 
