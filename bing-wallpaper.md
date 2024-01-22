@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-22 | [Alba invernale, Faro di Walton, Santa Cruz, California, USA (© Jeff Lewis/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SantaCruzSunrise_IT-IT2418215934_UHD.jpg) 
+
 2024-01-21 | [Scoiattolo rosso eurasiatico, Paesi Bassi (© Ernst Dirksen/Minden Pictures)](https://global.bing.com/th?id=OHR.SquirrelNetherlands_IT-IT1961289620_UHD.jpg) 
 
 2024-01-20 | [Pinguini Macaroni, Passaggio di Drake, Cile (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.MacaroniPenguins_IT-IT1123912901_UHD.jpg) 
