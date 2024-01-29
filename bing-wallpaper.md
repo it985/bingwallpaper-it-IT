@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-29 | [Cascata di Gollinger, Tennengau, Salisburgo, Austria (© Frank Fischbach/Alamy)](https://global.bing.com/th?id=OHR.GollingerFalls_IT-IT3317217540_UHD.jpg) 
+
 2024-01-28 | [Channel Country, Outback nel Queensland, Australia (© Southern Lightscapes-Australia/Getty Images)](https://global.bing.com/th?id=OHR.ChannelOutback_IT-IT0059174441_UHD.jpg) 
 
 2024-01-27 | [Maschera al Carnevale di Venezia, Veneto, Italia (© Neyya/Getty Images)](https://global.bing.com/th?id=OHR.VeniceMask_IT-IT8837676102_UHD.jpg) 
