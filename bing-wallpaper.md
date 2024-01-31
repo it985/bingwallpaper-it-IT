@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-01-31 | [Esemplare di zebra di Burchell con il suo piccolo, Riserva naturale di Rietvlei, Sud Africa (© Richard Du Toit/Minden Pictures)](https://global.bing.com/th?id=OHR.ZebraMother_IT-IT4043343068_UHD.jpg) 
+
 2024-01-30 | [Villaggio di Ayna, Sierra del Segura, Albacete, Spagna (© Juan Maria Coy Vergara/Getty Images)](https://global.bing.com/th?id=OHR.AlbaceteSpain_IT-IT3657513736_UHD.jpg) 
 
 2024-01-29 | [Cascata di Gollinger, Tennengau, Salisburgo, Austria (© Frank Fischbach/Alamy)](https://global.bing.com/th?id=OHR.GollingerFalls_IT-IT3317217540_UHD.jpg) 
