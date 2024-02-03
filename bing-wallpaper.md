@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-03 | [Bonsai Rock, Lago Tahoe, Nevada, USA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.LakeTahoeRock_IT-IT1070329112_UHD.jpg) 
+
 2024-02-02 | [Marmotta che sbircia fuori dalla sua tana (© Scacciamosche/Getty Images)](https://global.bing.com/th?id=OHR.AlpineMarmot_IT-IT3513060995_UHD.jpg) 
 
 2024-02-01 | [Faro di Sassnitz sull’isola di Rüge, Germania (© Christian Back/eStock)](https://global.bing.com/th?id=OHR.HalbinselJasmund_IT-IT4499863722_UHD.jpg) 
