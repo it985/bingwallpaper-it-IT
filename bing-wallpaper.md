@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-04 | [Grotta Devetashka, Devetaki, Bulgaria (© Jasmine_K/Shutterstock)](https://global.bing.com/th?id=OHR.DevetashkaCave_IT-IT5414731780_UHD.jpg) 
+
 2024-02-03 | [Bonsai Rock, Lago Tahoe, Nevada, USA (© Jim Patterson/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.LakeTahoeRock_IT-IT1070329112_UHD.jpg) 
 
 2024-02-02 | [Marmotta che sbircia fuori dalla sua tana (© Scacciamosche/Getty Images)](https://global.bing.com/th?id=OHR.AlpineMarmot_IT-IT3513060995_UHD.jpg) 
