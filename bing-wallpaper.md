@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-07 | [St. James Tidal Pool, Città del Capo, Sudafrica (© AmazingAerialAgency/Adobe)](https://global.bing.com/th?id=OHR.StJamesPool_IT-IT1919954550_UHD.jpg) 
+
 2024-02-06 | [Città di Sanremo di notte (© Surkov Dimitri/Getty Images)](https://global.bing.com/th?id=OHR.SanremoFestival_IT-IT4644793189_UHD.jpg) 
 
 2024-02-05 | [Farfalle monarca, Goleta, California, USA (© Craig Rademacher/500px/Getty Images)](https://global.bing.com/th?id=OHR.WesternMonarchs_IT-IT2924035412_UHD.jpg) 
