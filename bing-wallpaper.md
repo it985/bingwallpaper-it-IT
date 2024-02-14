@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-14 | [Gru della Manciuria durante il corteggiamento ad Hokkaido, Giappone (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_IT-IT9417947557_UHD.jpg) 
+
 2024-02-13 | [Sfilata dei carri di Carnevale di Viareggio, Toscana, Italia (© Laura Lezza/Getty Images)](https://global.bing.com/th?id=OHR.CarnevaleViareggio_IT-IT8940909658_UHD.jpg) 
 
 2024-02-12 | [Testuggini delle Galapagos vicino al vulcano Alcedo, Isola di Isabela, Galapagos, Ecuador (© Tui De Roy/Minden Pictures)](https://global.bing.com/th?id=OHR.GiantTortoise_IT-IT7539494378_UHD.jpg) 
