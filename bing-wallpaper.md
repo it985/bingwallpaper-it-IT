@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-16 | [Una femmina di pyrrhuloxia in posa su una pianta di cactus spinoso in Texas, USA (© outtakes/Getty Images)](https://global.bing.com/th?id=OHR.BackyardBird_IT-IT6515911686_UHD.jpg) 
+
 2024-02-15 | [Mamma ippopotamo con il suo piccolo, Parco Nazionale del Sud Luangwa, Zambia (© Nature Picture Library/Alamy)](https://global.bing.com/th?id=OHR.HippopotamusDay_IT-IT9950254763_UHD.jpg) 
 
 2024-02-14 | [Gru della Manciuria durante il corteggiamento ad Hokkaido, Giappone (© Steve Bloom Images/Alamy)](https://global.bing.com/th?id=OHR.BowingCrane_IT-IT9417947557_UHD.jpg) 
