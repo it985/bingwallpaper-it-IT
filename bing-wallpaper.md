@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-21 | [Cascata di fuoco a Horsetail Fall, Parco Nazionale dello Yosemite, California, USA (© Gregory B Cuvelier/Shutterstock)](https://global.bing.com/th?id=OHR.YosemiteFirefall_IT-IT1880342554_UHD.jpg) 
+
 2024-02-20 | [Kinder Scout all'alba, Parco Nazionale del Peak District, Regno Unito (© john finney photography/Getty Images)](https://global.bing.com/th?id=OHR.PeakDistrictNP_IT-IT5172127370_UHD.jpg) 
 
 2024-02-19 | [Vista aerea di Punta Brava, Puerto de la Cruz, Tenerife, Spagna (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.CarnavalTenerife_IT-IT6859565404_UHD.jpg) 
