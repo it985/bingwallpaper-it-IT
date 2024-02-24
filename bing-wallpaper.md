@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-24 | [Due verdoni che litigano mentre nevica, Italia (© Paolino Massimiliano Manuel/Getty Images)](https://global.bing.com/th?id=OHR.GreenfinchesBattle_IT-IT1304906662_UHD.jpg) 
+
 2024-02-23 | [Monastero di Haghartsin, Parco Nazionale di Dilijan, Armenia (© Alexey Kharitonov/Shutterstock)](https://global.bing.com/th?id=OHR.HaghartsinMonastery_IT-IT8194609337_UHD.jpg) 
 
 2024-02-22 | [Cabine da spiaggia a Brighton Beach, Melbourne, Victoria, Australia (© Prasit photo/Getty Images)](https://global.bing.com/th?id=OHR.BrightonBoxes_IT-IT6630946422_UHD.jpg) 
