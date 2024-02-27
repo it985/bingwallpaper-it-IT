@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-02-27 | [Cuccioli di orso polare che giocano, Kaktovik, Alaska, Stati Uniti (© Piriya Photography/Getty Images)](https://global.bing.com/th?id=OHR.PolarBearCubs_IT-IT9998741209_UHD.jpg) 
+
 2024-02-26 | [105esimo anniversario del Parco del Grand Canyon, Arizona, USA (© Jeremy Janus/Getty Images)](https://global.bing.com/th?id=OHR.GrandCanyonWinter_IT-IT9629342558_UHD.jpg) 
 
 2024-02-25 | [Nebbia nella valle Cowichan a Vancouver Island, Columbia Britannica, Canada (© Kevin Oke/Alamy)](https://global.bing.com/th?id=OHR.MtPrevostDuncan_IT-IT3250174651_UHD.jpg) 
