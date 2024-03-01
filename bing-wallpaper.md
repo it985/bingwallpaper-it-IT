@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-01 | [Gruppo delle Cinque Torri nelle Dolomiti, Cortina d'Ampezzo, Veneto, Italia (© iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.CinqueTorriCortina_IT-IT1456925506_UHD.jpg) 
+
 2024-02-29 | [Scoiattolo rosso eurasiatico (© Westend61/Getty Images)](https://global.bing.com/th?id=OHR.LeapingSquirrel_IT-IT0733873049_UHD.jpg) 
 
 2024-02-28 | [Castello di Bamburgh, Northumberland, Inghilterra (© Blackbeck/Getty Images)](https://global.bing.com/th?id=OHR.BamburghCastleUK_IT-IT5518925488_UHD.jpg) 
