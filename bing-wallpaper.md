@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-04 | [Il vulcano Arenal visto da Monteverde, Costa Rica (© Lukas Bischoff/Getty Images)](https://global.bing.com/th?id=OHR.ArenalCostaRica_IT-IT1610887300_UHD.jpg) 
+
 2024-03-03 | [Leopardo su un albero, Parco Nazionale Kruger, Sudafrica (© Tonino De Marco/Minden Pictures)](https://global.bing.com/th?id=OHR.KrugerLeopard_IT-IT3868840858_UHD.jpg) 
 
 2024-03-02 | [Modica, Sicilia, Italia (© Sandro Bisaro/Getty Images)](https://global.bing.com/th?id=OHR.ModicaItaly_IT-IT4926775993_UHD.jpg) 
