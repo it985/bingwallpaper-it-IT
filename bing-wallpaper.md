@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-08 | [Tate Modern illuminato di viola, Londra, Inghilterra (© Stephen Chung/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.TateLightUp_IT-IT9961329902_UHD.jpg) 
+
 2024-03-07 | [Roques de Benet, Parco Naturale di Els Ports, Catalogna, Spagna (© Sergi Boixader/Alamy)](https://global.bing.com/th?id=OHR.TarragonaSpain_IT-IT1704210976_UHD.jpg) 
 
 2024-03-06 | [Cascate di Wahclella, Columbia River Gorge, Oregon, USA (© Eric Vogt/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.WahclellaFalls_IT-IT1579861571_UHD.jpg) 
