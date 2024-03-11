@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-11 | [Un koala che sonnecchia su un albero di eucalipto, Australia (© Anton Rogozin/Getty Images)](https://global.bing.com/th?id=OHR.SleepyKoala_IT-IT1648374764_UHD.jpg) 
+
 2024-03-10 | [Orologio meccanico di San Jacinto, Beaumont, Texas, Stati Uniti (© Richard T. Nowitz/Getty Images)](https://global.bing.com/th?id=OHR.BeaumontClock_IT-IT6612904601_UHD.jpg) 
 
 2024-03-09 | [La natura selvaggia del Bisti/De-Na-Zin, Nuovo Messico, Stati Uniti (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BistiBlue_IT-IT0491354330_UHD.jpg) 
