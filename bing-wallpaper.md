@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-20 | [Cave Dale e Peveril Castle a Castleton, Derbyshire Peak District, Inghilterra (© James Osmond/Alamy)](https://global.bing.com/th?id=OHR.SpringCaveDale_IT-IT3874246493_UHD.jpg) 
+
 2024-03-19 | [Papà e piccolo di volpe rossa, Washington, Stati Uniti (© Chase Dekker/Minden Pictures)](https://global.bing.com/th?id=OHR.RedFox_IT-IT0563708572_UHD.jpg) 
 
 2024-03-18 | [Elephant Rock, Al-Ula, Arabia Saudita (© Lubo Ivanko/Shutterstock)](https://global.bing.com/th?id=OHR.ElephantRock_IT-IT7160275980_UHD.jpg) 
