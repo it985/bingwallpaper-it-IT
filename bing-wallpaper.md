@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-26 | [Expo Business Center, Milano, Italia (© photovideostock/Getty Images)](https://global.bing.com/th?id=OHR.Milanbusinesscenter_IT-IT6797515629_UHD.jpg) 
+
 2024-03-25 | [Festeggiamenti durante l'Holi, India (© Avishek Das/SOPA Images/LightRocket via Getty Images)](https://global.bing.com/th?id=OHR.ColorfulHoli_IT-IT7690011331_UHD.jpg) 
 
 2024-03-24 | [Coppia di occhialino dorsogrigio su un ramo di ciliegio, Sud Corea (© TigerSeo/Getty Images)](https://global.bing.com/th?id=OHR.WhiteEyes_IT-IT2367465138_UHD.jpg) 
