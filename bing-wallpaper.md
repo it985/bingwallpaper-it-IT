@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-03-29 | [Faro di South Stack al tramonto, Holyhead, Galles, Regno Unito (© mariotlr/Getty Images)](https://global.bing.com/th?id=OHR.SouthStackLight_IT-IT5123694912_UHD.jpg) 
+
 2024-03-28 | [Fiori di ciliegio a Shanghai, in Cina (© Yaorusheng/Getty Images)](https://global.bing.com/th?id=OHR.ShanghaiBlossoms_IT-IT7775972818_UHD.jpg) 
 
 2024-03-27 | [Teatro Colón di Buenos Aires, Argentina (© Wei Hao Ho/Alamy)](https://global.bing.com/th?id=OHR.TeatroColon_IT-IT6266704589_UHD.jpg) 
