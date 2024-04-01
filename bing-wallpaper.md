@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-02 | [Faggi e anemoni selvatici, Jutland, Danimarca (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_IT-IT3723976885_UHD.jpg) 
+
 2024-04-01 | ["Vanishing Point" dell'artista francese JR copre la facciata del Palazzo Farnese, Roma, Italia (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_IT-IT8737632028_UHD.jpg) 
 
 2024-03-30 | [Bradipo tridattilo dal collo marrone che dorme su un albero di cecropia, Costa Rica (© Juan Carlos Vindas/Getty Images)](https://global.bing.com/th?id=OHR.SleepySloth_IT-IT7892909153_UHD.jpg) 
