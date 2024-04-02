@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-03 | [Arcobaleno nel distretto di At-Bashy, monti Kakshaal Too, provincia di Naryn, Kirghizistan (© Emad aljumah/Getty Images)](https://global.bing.com/th?id=OHR.KyrgyzstanRainbow_IT-IT9404693194_UHD.jpg) 
+
 2024-04-02 | [Faggi e anemoni selvatici, Jutland, Danimarca (© Nick Brundle Photography/Getty Images)](https://global.bing.com/th?id=OHR.JutlandSpring_IT-IT3723976885_UHD.jpg) 
 
 2024-04-01 | ["Vanishing Point" dell'artista francese JR copre la facciata del Palazzo Farnese, Roma, Italia (© Fabrizio Troiani/Alamy)](https://global.bing.com/th?id=OHR.PalazzoFarnese_IT-IT8737632028_UHD.jpg) 
