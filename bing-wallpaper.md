@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-05 | [Le Isole Bahamas viste dalla Stazione spaziale internazionale (© NASA)](https://global.bing.com/th?id=OHR.BahamasSpace_IT-IT0834278033_UHD.jpg) 
+
 2024-04-04 | [Alpe di Siusi, Dolomiti, Italia (© Achim Thomae/Getty Images)](https://global.bing.com/th?id=OHR.DolomitesSeiserAlm_IT-IT7507692792_UHD.jpg) 
 
 2024-04-03 | [Arcobaleno nel distretto di At-Bashy, monti Kakshaal Too, provincia di Naryn, Kirghizistan (© Emad aljumah/Getty Images)](https://global.bing.com/th?id=OHR.KyrgyzstanRainbow_IT-IT9404693194_UHD.jpg) 
