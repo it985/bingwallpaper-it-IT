@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-06 | [Castello di Himeji, Prefettura di Hyōgo, Giappone (© Julian Elliott Photography/Getty Images)](https://global.bing.com/th?id=OHR.JapanHimeji_IT-IT3790659701_UHD.jpg) 
+
 2024-04-05 | [Le Isole Bahamas viste dalla Stazione spaziale internazionale (© NASA)](https://global.bing.com/th?id=OHR.BahamasSpace_IT-IT0834278033_UHD.jpg) 
 
 2024-04-04 | [Alpe di Siusi, Dolomiti, Italia (© Achim Thomae/Getty Images)](https://global.bing.com/th?id=OHR.DolomitesSeiserAlm_IT-IT7507692792_UHD.jpg) 
