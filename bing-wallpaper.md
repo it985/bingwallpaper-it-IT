@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-09 | [Dune di sale nelle saline, Sardegna, Italia (© Stefano Oppo/Getty Images)](https://global.bing.com/th?id=OHR.SardiniaSalt_IT-IT3748947428_UHD.jpg) 
+
 2024-04-08 | [Riccio europeo in un prato, Bad Driburg, Germania (© Oksana Schmidt/Getty Images)](https://global.bing.com/th?id=OHR.HedgehogMeadow_IT-IT3829622276_UHD.jpg) 
 
 2024-04-07 | [Castoro nordamericano in uno stagno vicino Wonder Lake, Parco Nazionale di Danali, Alaska, Stati Uniti (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.BeaverDenali_IT-IT3876501341_UHD.jpg) 
