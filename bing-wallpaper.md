@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-14 | [Alone solare sulle Dolomiti presso il lago di Antermoia, Italia (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.AloneSole_IT-IT3498476071_UHD.jpg) 
+
 2024-04-13 | [Alberi di mele in primavera, Germania (© Smileus/Getty Images)](https://global.bing.com/th?id=OHR.SpringApple_IT-IT3617593822_UHD.jpg) 
 
 2024-04-12 | [Luce serale sulla North Window con il Turret Arch in lontananza, Parco Nazionale di Arches, Utah, USA (© Anthony Heflin/Shutterstock)](https://global.bing.com/th?id=OHR.SunsetArchesNP_IT-IT3537789525_UHD.jpg) 
