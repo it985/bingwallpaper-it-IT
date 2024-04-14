@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-15 | [Installazione artistica del RedBall Project, Stazione Centrale di Anversa, Belgio (© Brit Worgan/Getty Images)](https://global.bing.com/th?id=OHR.RedBallBelgium_IT-IT3409084305_UHD.jpg) 
+
 2024-04-14 | [Alone solare sulle Dolomiti presso il lago di Antermoia, Italia (© Walter Donega/Getty Images)](https://global.bing.com/th?id=OHR.AloneSole_IT-IT3498476071_UHD.jpg) 
 
 2024-04-13 | [Alberi di mele in primavera, Germania (© Smileus/Getty Images)](https://global.bing.com/th?id=OHR.SpringApple_IT-IT3617593822_UHD.jpg) 
