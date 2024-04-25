@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-04-26 | [Albero di Kalaloch, alias l'albero della vita, Kalaloch Beach, Parco Nazionale di Olympic, Washington, Stati Uniti (© Abbie Warnock-Matthews/Shutterstock)](https://global.bing.com/th?id=OHR.KalalochTree_IT-IT7011475645_UHD.jpg) 
+
 2024-04-25 | [Frecce Tricolori in volo, Giornata della Liberazione, Roma (© Marie-Laure Messana/Getty Images)](https://global.bing.com/th?id=OHR.LiberationOfItaly_IT-IT5702803658_UHD.jpg) 
 
 2024-04-24 | [Trillio Bianco in fioritura in Ontario, Canada (© Jun Zhang/Getty Images)](https://global.bing.com/th?id=OHR.TrilliumOntario_IT-IT6051725546_UHD.jpg) 
