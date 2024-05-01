@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-02 | [Flusso di lava del Drago Blu, Monumento e riserva nazionale Craters of the Moon, Idaho, USA (© Alan Majchrowicz/Getty Images)](https://global.bing.com/th?id=OHR.CratersOfTheMoon_IT-IT8708957821_UHD.jpg) 
+
 2024-05-01 | [Ghirlande di fiori hawaiani, Hawaii, Stati Uniti (© Jotika Pun/Shutterstock)](https://global.bing.com/th?id=OHR.HawaiianLei_IT-IT8543155647_UHD.jpg) 
 
 2024-04-30 | [Ghepardo sotto la pioggia del mattino, Ndutu Plains, Ngorongoro Conservation Area, Tanzania (© Paul Souders/Getty Images)](https://global.bing.com/th?id=OHR.CheetahRain_IT-IT8393286525_UHD.jpg) 
