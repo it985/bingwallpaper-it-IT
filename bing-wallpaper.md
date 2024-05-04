@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-05 | [Il Cerchio di Brodgar, Orcadi, Scozia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.OrkneyStones_IT-IT2078101217_UHD.jpg) 
+
 2024-05-04 | [Giro d'Italia, Ciclisti sulle Dolomiti (© Tim de Waele/Staff/Getty Images)](https://global.bing.com/th?id=OHR.GirodItalia2024_IT-IT9407204320_UHD.jpg) 
 
 2024-05-03 | [Fioritura primaverile dei cespugli, deserto di Sonora, Arizona, Stati Uniti (© Charles Harker/Getty Images)](https://global.bing.com/th?id=OHR.SonoranSpring_IT-IT9351993894_UHD.jpg) 
