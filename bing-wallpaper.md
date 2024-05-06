@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-07 | [Vigneto vulcanico a Lanzarote, Isole Canarie (© Pol Albarrán/Getty Images)](https://global.bing.com/th?id=OHR.LaGeriaLanzarote_IT-IT5537790219_UHD.jpg) 
+
 2024-05-06 | [Le rovine di un antico monastero sull'isola di Skellig Michael, Irlanda (© MNStudio/Getty Images)](https://global.bing.com/th?id=OHR.JediMonastery_IT-IT4680145020_UHD.jpg) 
 
 2024-05-05 | [Il Cerchio di Brodgar, Orcadi, Scozia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.OrkneyStones_IT-IT2078101217_UHD.jpg) 
