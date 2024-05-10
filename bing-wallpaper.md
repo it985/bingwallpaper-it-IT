@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-11 | [Uno zigolo indaco appollaiato su un ramo, Texas, USA (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.TexasIndigoBunting_IT-IT9364925475_UHD.jpg) 
+
 2024-05-10 | [Misool, Isole Raja Ampat, Indonesia (© Giordano Cipriani/Getty Images)](https://global.bing.com/th?id=OHR.MisoolRajaAmpat_IT-IT8362086795_UHD.jpg) 
 
 2024-05-09 | [Tulips at Emirgan Park in Istanbul, Türkiye (© Ozbalci/Getty Images)](https://global.bing.com/th?id=OHR.EmirganPark_IT-IT4111429731_UHD.jpg) 
