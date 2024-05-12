@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-13 | [Canyon del fiume Fish, Namibia (© R. M. Nunes/Getty Images)](https://global.bing.com/th?id=OHR.NamibiaCanyon_IT-IT9781699785_UHD.jpg) 
+
 2024-05-12 | [Vista dall'alto di delfini che nuotano nel mare, Genova, Italia (© Andrea Izzotti/500px/Getty Images)](https://global.bing.com/th?id=OHR.BabyDolphinMom_IT-IT8782194786_UHD.jpg) 
 
 2024-05-11 | [Uno zigolo indaco appollaiato su un ramo, Texas, USA (© Jeff R Clow/Getty Images)](https://global.bing.com/th?id=OHR.TexasIndigoBunting_IT-IT9364925475_UHD.jpg) 
