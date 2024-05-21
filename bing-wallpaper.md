@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-22 | [Gomma delle nevi della Tasmania (Eucalyptus pauciflora), Parco Nazionale di Mount Field, Tasmania, Australia (© Ignacio Palacios/Getty Images)](https://global.bing.com/th?id=OHR.SnowGumTasmania_IT-IT5111843479_UHD.jpg) 
+
 2024-05-21 | [Piantagione di tè, Cameron Highlands, Malaysia (© alex cheong/Getty Images)](https://global.bing.com/th?id=OHR.MalaysiaTea_IT-IT5477437805_UHD.jpg) 
 
 2024-05-20 | [Un’ape che cura un favo (© Simun Ascic/Alamy)](https://global.bing.com/th?id=OHR.HoneycombBee_IT-IT9529563707_UHD.jpg) 
