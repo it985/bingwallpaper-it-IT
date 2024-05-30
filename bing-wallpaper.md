@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-05-31 | [Gunnerside, Swaledale, Parco Nazionale delle Yorkshire Dales, Inghilterra (© Derek Croucher/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.YorkshireDalesNP_IT-IT9821537287_UHD.jpg) 
+
 2024-05-30 | [Complesso di pini da taglio e prateria di segatura nel Parco Nazionale delle Everglades, Florida, USA (© Jonathan Gewirtz/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.Everglades90th_IT-IT9833292741_UHD.jpg) 
 
 2024-05-29 | [Lontre europee adolescenti, Loch Spelve, Isola di Mull, Scozia (© Neil Henderson/Alamy)](https://global.bing.com/th?id=OHR.MullOtter_IT-IT5835725538_UHD.jpg) 
