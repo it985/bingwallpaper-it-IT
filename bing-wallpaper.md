@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-04 | [Gruccione testacastana, Parco Nazionale Reale di Bardia, Nepal (© PACO COMO/Shutterstock)](https://global.bing.com/th?id=OHR.ChestnutBeeEater_IT-IT3152555866_UHD.jpg) 
+
 2024-06-03 | [Biciclette a Copenaghen, Danimarca (© Alphotographic/Getty Images)](https://global.bing.com/th?id=OHR.CopenhagenBicycles_IT-IT2125819648_UHD.jpg) 
 
 2024-06-02 | [Festa della Repubblica (© Independent Photo Agency Srl)](https://global.bing.com/th?id=OHR.ItalyFlag_IT-IT1674511086_UHD.jpg) 
