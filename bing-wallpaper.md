@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-10 | [Osaka di notte, Giappone (© wichianduangsri/Getty Images)](https://global.bing.com/th?id=OHR.OsakaNight_IT-IT6949418703_UHD.jpg) 
+
 2024-06-09 | [Riserva della Biosfera e Parco Naturale Bardenas Reales, Bardenas, Navarra, Spagna (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BardenasBiosphere_IT-IT6167554797_UHD.jpg) 
 
 2024-06-08 | [Confluenza dell'Easter Creek e del fiume Killik, Parco Nazionale e Riserva Gates of the Arctic, Alaska, USA (© Patrick J. Endres/Getty Images)](https://global.bing.com/th?id=OHR.KillikRiverAlaska_IT-IT4840241449_UHD.jpg) 
