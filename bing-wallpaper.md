@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-11 | [Vieste sulla penisola del Gargano, Puglia, Italia (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_IT-IT7489172458_UHD.jpg) 
+
 2024-06-10 | [Osaka di notte, Giappone (© wichianduangsri/Getty Images)](https://global.bing.com/th?id=OHR.OsakaNight_IT-IT6949418703_UHD.jpg) 
 
 2024-06-09 | [Riserva della Biosfera e Parco Naturale Bardenas Reales, Bardenas, Navarra, Spagna (© Aliaume Chapelle/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.BardenasBiosphere_IT-IT6167554797_UHD.jpg) 
