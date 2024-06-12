@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-13 | [Facciata a mosaico in piazza Registan, Samarcanda, Uzbekistan (© da-kuk/Getty Images)](https://global.bing.com/th?id=OHR.RegistanUzbekistan_IT-IT8716524920_UHD.jpg) 
+
 2024-06-12 | [Via Lattea, Parco Nazionale di Big Bend, Texas, USA (© wisanuboonrawd/Adobe Stock)](https://global.bing.com/th?id=OHR.BigBendMilkyWay_IT-IT7811408807_UHD.jpg) 
 
 2024-06-11 | [Vieste sulla penisola del Gargano, Puglia, Italia (© Pilat666/Getty Images)](https://global.bing.com/th?id=OHR.ViesteItaly_IT-IT7489172458_UHD.jpg) 
