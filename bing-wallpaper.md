@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-19 | [Torre dell'acqua, Cuxhaven, Bassa Sassonia, Germania (© Andreas Vogel/Alamy)](https://global.bing.com/th?id=OHR.CuxhavenTower_IT-IT3147341965_UHD.jpg) 
+
 2024-06-18 | [Campi di lupini e una chiesa all'alba, penisola di Snæfellsnes, Islanda (© Matteo Colombo/Getty Images)](https://global.bing.com/th?id=OHR.LupinIceland_IT-IT2902162777_UHD.jpg) 
 
 2024-06-17 | [Colibrì, Cerro de la Muerte, Costa Rica (© adrian hepworth/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.HummingThistle_IT-IT2672242113_UHD.jpg) 
