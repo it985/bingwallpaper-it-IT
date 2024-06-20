@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-21 | [Madre giraffa reticolata con prole, Lewa Wildlife Conservancy, Kenya (© Sean Crane/Minden Pictures)](https://global.bing.com/th?id=OHR.LewaGiraffe_IT-IT6350350663_UHD.jpg) 
+
 2024-06-20 | [Vista di alberi nel bosco Reggio Calabria, Italia (© Roberto Martini/Getty Images)](https://global.bing.com/th?id=OHR.SummerTree_IT-IT6031529080_UHD.jpg) 
 
 2024-06-19 | [Torre dell'acqua, Cuxhaven, Bassa Sassonia, Germania (© Andreas Vogel/Alamy)](https://global.bing.com/th?id=OHR.CuxhavenTower_IT-IT3147341965_UHD.jpg) 
