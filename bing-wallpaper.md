@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-06-25 | [La formazione rocciosa dell'Onda di Fuoco, Valley of Fire State Park, Nevada, USA (© Clint Losee/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.FireWave_IT-IT4832147004_UHD.jpg) 
+
 2024-06-24 | [Laghi del cratere vulcanico di Kelimutu, Flores, Indonesia (© Shane P. White/Minden Pictures)](https://global.bing.com/th?id=OHR.FloresIsland_IT-IT4545607892_UHD.jpg) 
 
 2024-06-23 | [Vista aerea di una rotatoria a Dacca, Bangladesh (© Azim Khan Ronnie/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.DhakaBangladesh_IT-IT6657097189_UHD.jpg) 
