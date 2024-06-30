@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-01 | [Italica, un'antica città romana a Santiponce, Siviglia, Andalusia, Spagna (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_IT-IT3637207546_UHD.jpg) 
+
 2024-06-30 | [Mole Antonelliana, Torino, Piemonte (© Nicolò Campo/Getty Images)](https://global.bing.com/th?id=OHR.PrideItalia_IT-IT3295714060_UHD.jpg) 
 
 2024-06-29 | [Ciclisti al Tour de France 2013, Corsica, Francia (© Pascal Pochard-Casabianca/AFP via Getty Images)](https://global.bing.com/th?id=OHR.TourCorsica_IT-IT2275929155_UHD.jpg) 
