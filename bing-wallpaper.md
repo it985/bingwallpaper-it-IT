@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-03 | [Famiglia di suricati (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_IT-IT4262281606_UHD.jpg) 
+
 2024-07-02 | [Paesaggio di Siena al tramonto, con Piazza del Campo e Torre del Mangia (© Hani Santosa/Getty Images)](https://global.bing.com/th?id=OHR.PalioDiSiena_IT-IT3821584862_UHD.jpg) 
 
 2024-07-01 | [Italica, un'antica città romana a Santiponce, Siviglia, Andalusia, Spagna (© Moses Palermo/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.ItalicaRuins_IT-IT3637207546_UHD.jpg) 
