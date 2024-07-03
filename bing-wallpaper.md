@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-04 | [Zahara de la Sierra, Andalusia, Spagna (© Francesco Carovillano/eStock Photo)](https://global.bing.com/th?id=OHR.ZaharaDeLaSierra_IT-IT4545122871_UHD.jpg) 
+
 2024-07-03 | [Famiglia di suricati (© anetapics/Shutterstock)](https://global.bing.com/th?id=OHR.MeerkatManor_IT-IT4262281606_UHD.jpg) 
 
 2024-07-02 | [Paesaggio di Siena al tramonto, con Piazza del Campo e Torre del Mangia (© Hani Santosa/Getty Images)](https://global.bing.com/th?id=OHR.PalioDiSiena_IT-IT3821584862_UHD.jpg) 
