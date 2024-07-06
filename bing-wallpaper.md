@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-07 | [Terrazze di riso, Mù Cang Chải, Provincia di Yên Bái, Vietnam (© Kiatanan Sugsompian/Getty Images)](https://global.bing.com/th?id=OHR.YenBaiTerraces_IT-IT5762432409_UHD.jpg) 
+
 2024-07-06 | [Il castello di Conwy con vista sul fiume Conwy, Galles, Regno Unito (© David Chapman/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ConwyRiver_IT-IT5239937929_UHD.jpg) 
 
 2024-07-05 | [Noah Beach nella foresta pluviale di Daintree, Queensland, Australia (© bjeayes/Getty Images)](https://global.bing.com/th?id=OHR.NoahBeach_IT-IT4884170767_UHD.jpg) 
