@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-11 | [Gangi, Sicilia, Italia (© Andrea Caruso/Amazing Aerial Agency)](https://global.bing.com/th?id=OHR.GangiSicily_IT-IT7151002440_UHD.jpg) 
+
 2024-07-10 | [Scultura in pietra in un tempio di Ubud, Bali, Indonesia (© R. Schönebaum/plainpicture)](https://global.bing.com/th?id=OHR.UbudBali_IT-IT6720560821_UHD.jpg) 
 
 2024-07-09 | [Parco Nazionale di Talampaya, provincia di La Rioja, Argentina (© Gonzalo Azumendi/Getty Images)](https://global.bing.com/th?id=OHR.TalampayaNP_IT-IT6470526392_UHD.jpg) 
