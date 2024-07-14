@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-15 | [Parco Tateishi, Prefettura di Kanagawa, Giappone (© blew_s/Shutterstock)](https://global.bing.com/th?id=OHR.TateishiPark_IT-IT9039159342_UHD.jpg) 
+
 2024-07-14 | [Squalo seta alle coste dell’arcipelago Jardines de la Reina, Cuba (© Christian Vizl/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SilkyShark_IT-IT4511134716_UHD.jpg) 
 
 2024-07-13 | [Camini delle fate e abitazioni in grotta in Cappadocia, Turchia (© Storm Is Me/Shutterstock)](https://global.bing.com/th?id=OHR.CappadociaRocks_IT-IT4089475911_UHD.jpg) 
