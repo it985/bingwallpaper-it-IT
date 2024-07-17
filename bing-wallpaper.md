@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-18 | [Barriera corallina nell'Oceano Indiano, Mayotte, Francia (© Gabriel Barathieu/Minden Pictures)](https://global.bing.com/th?id=OHR.MayotteCoral_IT-IT9928762998_UHD.jpg) 
+
 2024-07-17 | [Città medievale di Rothenburg ob der Tauber, Baviera, Germania (© kanuman/Getty Images)](https://global.bing.com/th?id=OHR.MedievalRothenburg_IT-IT9631066540_UHD.jpg) 
 
 2024-07-16 | [L'insediamento neolitico di Skara Brae, Isole delle Orcadi, Scozia (© Paul Williams - FunkyStock/Getty Images)](https://global.bing.com/th?id=OHR.AncientOrkney_IT-IT9302214437_UHD.jpg) 
