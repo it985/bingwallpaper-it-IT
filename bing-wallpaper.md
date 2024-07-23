@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-07-24 | [Gregge di pecore di Swaledale nel North Yorkshire, Inghilterra (© R A Kearton/Getty Images)](https://global.bing.com/th?id=OHR.SheepCousins_IT-IT2624157981_UHD.jpg) 
+
 2024-07-23 | [Castello Methoni, Messenia, Grecia (© Andrew Mayovskyy/Shutterstock)](https://global.bing.com/th?id=OHR.MethoniCastle_IT-IT2567271010_UHD.jpg) 
 
 2024-07-22 | [Barche da pesca in legno nel villaggio di Kendwa, Zanzibar, Tanzania (© Lubos Paukeje/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.ZanzibarBoats_IT-IT2498729421_UHD.jpg) 
