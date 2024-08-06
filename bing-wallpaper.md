@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-07 | [Molo St. Joseph North, Michigan, USA (© Kenneth Keifer/Getty Images)](https://global.bing.com/th?id=OHR.MichiganLighthouse_IT-IT9647286903_UHD.jpg) 
+
 2024-08-06 | [Molokini, Maui, Hawaii, USA (© Douglas Peebles/eStock Photo)](https://global.bing.com/th?id=OHR.MolokiniHawaii_IT-IT9190436704_UHD.jpg) 
 
 2024-08-05 | [Campo di lavanda, Hertfordshire, Inghilterra, Regno Unito (© George W Johnson/Getty Images)](https://global.bing.com/th?id=OHR.HertfordshireLavender_IT-IT3555753109_UHD.jpg) 
