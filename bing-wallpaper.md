@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-11 | [Sentiero di legno per il lago Kennedy, isola di Vancouver, British Columbia, Canada (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_IT-IT4209274959_UHD.jpg) 
+
 2024-08-10 | [Monte Argentario, Toscana, Italia (© Giulio Ercolani/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.SanLorenzoNight_IT-IT4055519723_UHD.jpg) 
 
 2024-08-09 | [Rovina Inca di Sacsayhuamán, Regione di Cusco, Perù (© SL_Photography/Getty Images)](https://global.bing.com/th?id=OHR.IncaRuinPeru_IT-IT3781329004_UHD.jpg) 
