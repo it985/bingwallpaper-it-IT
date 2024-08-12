@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-13 | [Scogliere del Parco Naturale di Telašćica, Isola di Dugi Otok, Croazia (© Ilija Ascic/Shutterstock)](https://global.bing.com/th?id=OHR.DugiOtokCroatia_IT-IT0800672865_UHD.jpg) 
+
 2024-08-12 | [Elefanti africani, Parco Nazionale di Amboseli, Kenya (© Ruzdi Ekenheim/Getty Images)](https://global.bing.com/th?id=OHR.ElephantsAmboseli_IT-IT2233538988_UHD.jpg) 
 
 2024-08-11 | [Sentiero di legno per il lago Kennedy, isola di Vancouver, British Columbia, Canada (© EB Adventure Photography/Shutterstock)](https://global.bing.com/th?id=OHR.TofinoVancouver_IT-IT4209274959_UHD.jpg) 
