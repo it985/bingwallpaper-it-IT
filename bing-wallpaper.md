@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-17 | [Faro di Alfanzina, Algarve, Portogallo (© Andreas Kunz/Getty Images)](https://global.bing.com/th?id=OHR.AlfanzinaLighthouse_IT-IT5068594687_UHD.jpg) 
+
 2024-08-16 | [Grotta di Hang Sơn Đoòng, Parco Nazionale di Phong Nha-Kẻ Bàng, Vietnam (© Geng Xu/Getty Images)](https://global.bing.com/th?id=OHR.HangCave_IT-IT4945788331_UHD.jpg) 
 
 2024-08-15 | [Capo Vaticano, Calabria, Italia (© Nikita Birzhakov/iStock/Getty Images Plus)](https://global.bing.com/th?id=OHR.Ferragosto_IT-IT4867237057_UHD.jpg) 
