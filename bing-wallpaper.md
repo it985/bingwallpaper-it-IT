@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-20 | [Parco Nazionale del Grand Teton, Wyoming, USA (© Kurt Budliger/TANDEM Stills + Motion)](https://global.bing.com/th?id=OHR.TetonSunrise_IT-IT5409583917_UHD.jpg) 
+
 2024-08-19 | [Bufadero de la Garita, Gran Canaria, Spagna (© Marco Bottigelli/Getty Images)](https://global.bing.com/th?id=OHR.RegataSanGines_IT-IT5321961611_UHD.jpg) 
 
 2024-08-18 | [Molo di Huntington Beach al tramonto, California, USA (© Stan Moniz Photography/TANDEM Stills + Motion)](https://global.bing.com/th?id=OHR.HuntingtonBeach_IT-IT5196436677_UHD.jpg) 
