@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-26 | [Rifugio nazionale dell'atollo di Palmyra, Oceano Pacifico (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PalmyraAtoll_IT-IT5623392573_UHD.jpg) 
+
 2024-08-25 | [Alba sul lago Swiftcurrent, Parco Nazionale dei Ghiacciai, Montana, USA (© Jason Savage/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.SwiftcurrentLake_IT-IT5489995070_UHD.jpg) 
 
 2024-08-24 | [Monumento Nazionale Katahdin Woods and Waters, Contea di Penobscot, Maine, USA (© Cavan Images/Alamy Stock Photo)](https://global.bing.com/th?id=OHR.KatahdinWoods_IT-IT5335389072_UHD.jpg) 
