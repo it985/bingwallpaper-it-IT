@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2024-08-27 | [Lago Misurina, Auronzo di Cadore, Belluno, Veneto (© Andrew_Mayovskyy/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.LagoMisurina_IT-IT4702658331_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
 2024-08-26 | [Rifugio nazionale dell'atollo di Palmyra, Oceano Pacifico (© Ian Shive/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.PalmyraAtoll_IT-IT5623392573_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2024-08-26 | [Rifugio nazionale dell'atollo di Palmyra, Oceano Pacifico (© Ian Shive/Tandem Stills + Motion)](https://global.bing.com/th?id=OHR.PalmyraAtoll_IT-IT5623392573_UHD.jpg) 
